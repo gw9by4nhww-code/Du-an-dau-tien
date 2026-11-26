@@ -46,7 +46,7 @@
 
 **2. Bạn bè, gia đình → tiệc BBQ trên cao**
 
-*"Bạn bè và gia đình luôn là điều không thể thiếu. Chỉ một cuộc điện thoại, mình có thể mời bạn bè đến một bữa tiệc BBQ trên tầng thượng. Hay mỗi cuối tuần, cả gia đình quây quần bên nhau, ngay tại nhà mình."*
+*"Bạn bè và gia đình luôn là điều không thể thiếu. Có một không gian tư gia thật riêng, mình có thể sảng khoái mời những người bạn đến enjoy cùng gia đình mình. Chỉ cần một cuộc điện thoại, chúng ta đã có ngay tiệc BBQ trên tầng thượng. Mỗi cuối tuần, hay thậm chí là mỗi ngày, cùng nhau trải nghiệm **hồ bơi đáy kính pha lê** với tầm nhìn không giới hạn."*
 
 **3. Tối ưu thời gian → phòng gym**
 
@@ -58,7 +58,7 @@
 
 **5. Sức khỏe, nhạy bén → thể thao**
 
-*"Muốn khỏe hơn, nhạy bén hơn, mình có đường chạy bộ, sân pickleball, cầu lông, khu thể thao đa năng. Rèn luyện sức khỏe cùng bạn bè, mà không cần đi đâu xa."*
+*"Bạn muốn nạp dopamine, muốn được cardio, muốn khỏe hơn, nhạy bén hơn? Mình có đường chạy bộ, sân pickleball, cầu lông, khu thể thao đa năng. Rèn luyện sức khỏe cùng gia đình, mà không cần đi đâu xa."*
 
 **6. Phục hồi → yoga, thiền, sauna**
 

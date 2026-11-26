@@ -28,7 +28,7 @@
 - Hay dùng lịch trình một ngày (6h gym, 7h skincare, 8h đi làm, chiều thể thao, tối chữa lành) để kể chuyện.
 
 ## Giọng kể của Phượng (BẮT BUỘC cho kịch bản video)
-- 5 chữ cốt lõi: **lịch sự – chân thành – gần gũi – gọn gàng – sang trọng**.
+- Chữ cốt lõi: **lịch sự – chân thành – gần gũi – gọn gàng – sang trọng – vui vẻ – duyên dáng**.
 - Viết theo **giọng nói** của chị Phượng, **không viết văn xuôi**, và **KHÔNG** nhồi từ địa phương, từ đệm suồng sã ("hổng", "hết trơn", "nè nè", "tao/mày" trừ khi là lời thoại gọi bạn thân).
 - Câu gọn, rõ ý, không rườm rà; cảm xúc thật nhưng tiết chế, tinh tế.
 - Đặc điểm lấy từ chính lời chị nói:
