@@ -14,7 +14,7 @@
 *"Áp lực 8 tiếng mỗi ngày. Bạn cười nói, hướng ngoại cách mấy… cũng bị bào mòn.*
 *Rồi những đêm chạy deadline, cố gắng vì tương lai… vắt kiệt bạn đến giọt cuối cùng.*
 
-*Ngay lúc này, bạn thật sự cần một nơi cho riêng mình. Để chữa lành. Để lớn lên.*
+*Bạn chỉ cần vài giờ được hướng nội. Để được chữa lành, được nhìn nhận lại, được học tập, nâng cao bản thân… và được yêu thương bản thân thật nhiều.*
 
 *Đã bao giờ bạn ước… được thả lỏng giữa bầu trời?*
 
