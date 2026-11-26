@@ -102,3 +102,54 @@ Giá bán: **chưa có trong tài liệu**.
 ## Còn thiếu / cần hỏi
 - Bảng giá, chính sách thanh toán, chiết khấu
 - Hồ bơi dành riêng cư dân hay có thu phí, kích thước hồ
+
+## Danh sách tiện ích đánh số theo mặt bằng (tài liệu trang 14, 18, 19)
+**Tầng 1:**
+- 01 Cổng chào
+- 02 Vườn nhiệt đới
+- 03 Sảnh đón âm thanh
+- 04 Khu giao hàng
+- 05 Nghiêm linh đài
+- 06 Hộp giao hàng thông minh
+- 07 Quảng trường ánh sáng
+- 08 Công viên ánh sáng, gồm:
+  - 8a Hồ nước nắng mai
+  - 8b Tường ánh nắng
+  - 8c Vườn xanh công việc
+  - 8d Vườn trẻ thơ
+  - 8e Đường chạy bộ Elite
+  - 8f Vườn ký ức
+  - 8g Vườn thư giãn
+- 09 Trường mầm non Elite
+- 10 Khu vui chơi trẻ em
+- 11 Vườn BBQ
+- 12 Sân cầu lông và pickleball
+- 13 Khu thể thao đa năng ngoài trời
+- 14 Bãi đậu xe (khu A, B, C)
+
+**Tầng 12A:**
+- 21 Công viên âm thanh trên cao
+- 22 Công viên ánh sáng trên cao
+- Các vườn: vườn chuông gió, vườn bình minh, vườn nước và thiên nhiên, vườn tiếng sỏi, vườn yoga hoàng hôn, vườn mai và ánh sáng
+
+**Tầng thượng:**
+- 24 Sân thể thao trên cao ngoài trời
+- 25 Vườn xích đu
+- 26 Vườn thảo mộc
+- 27 Vườn đón nắng
+- 28 Hồ bơi đáy kính pha lê trên cao
+- 29 Sân tắm nắng trên cao
+- 30 Tiểu đình giọt nước
+- 31 Hồ thủy lực
+- 32 Hồ bơi trẻ em trên cao và sân chơi nước
+- 33 Khu sauna thượng tầng
+- 34 Phòng thư giãn thượng tầng
+- 35 Vườn bậc thang hoàng hôn
+- 36 Sân đón nắng trên cao
+- 37 Võng lưới trên không
+- 38 Vườn trà trên không
+- 39 Vườn BBQ trên cao
+
+**Không có trong danh sách đánh số:**
+- Số 15–20 và 23 không được liệt kê trong tài liệu.
+- Mặt bằng tầng 2 có thêm: phòng gym, phòng billiards, phòng tiệc karaoke gia đình, thư viện, phòng sinh hoạt cộng đồng.
