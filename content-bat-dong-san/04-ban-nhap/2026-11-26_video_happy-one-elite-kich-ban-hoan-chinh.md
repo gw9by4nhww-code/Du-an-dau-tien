@@ -16,9 +16,9 @@
 
 *Bạn chỉ cần vài giờ được hướng nội. Để được chữa lành, được nhìn nhận lại, được học tập, nâng cao bản thân… và được yêu thương bản thân thật nhiều.*
 
-*Đã bao giờ bạn ước… được thả lỏng giữa bầu trời?*
+*Bạn khao khát được tự do… được thật sự là chính mình?*
 
-*Điều đó sẽ thành sự thật, với **hồ bơi đáy kính pha lê**. Nơi chạm tới trọn vẹn… **cả 5 giác quan** của bạn."*
+*Giờ đây, điều đó sẽ thành sự thật, với **hồ bơi đáy kính pha lê**. Nước điện phân muối khoáng, tầm nhìn không giới hạn, chạm tới trọn vẹn… **cả 5 giác quan** của bạn."*
 
 *"Chào cả nhà, Lam Phượng đây!"*
 
@@ -102,7 +102,7 @@
 | # | Thời gian | Hình ảnh | Âm thanh / chữ trên màn hình |
 |---|---|---|---|
 | 1 | 0:00–0:06 | Tông xám, cắt nhanh: Phượng cười nói với khách → rời văn phòng lúc trời tối → laptop lúc nửa đêm | Tiếng đồng hồ tích tắc, gõ phím. Chữ: **"8 tiếng. Deadline. Kiệt sức."** |
-| 2 | 0:06–0:10 | Phượng nhắm mắt, ngả đầu ra sau | "Đã bao giờ bạn ước… được thả lỏng giữa bầu trời?" Nhạc lặng 1 giây |
+| 2 | 0:06–0:10 | Phượng nhắm mắt, ngả đầu ra sau | "Bạn khao khát được tự do… được thật sự là chính mình?" Nhạc lặng 1 giây |
 | 2b | 0:10–0:15 | **Cảnh WOW**: máy quay xuyên đáy kính từ dưới lên, lộ hồ bơi đáy kính pha lê nối hai tháp, Sài Gòn về đêm | Nhạc bùng lên. Chữ: **"Hồ bơi đáy kính pha lê"** |
 | 3 | 0:15–0:25 | Cắt nhanh: Phượng họp, bắt tay khách, nói điện thoại, cười gượng | Nhạc nhanh, tiếng ồn văn phòng, còi xe |
 | 4 | 0:25–0:35 | 8 giờ tối, Phượng ngồi laptop trong phòng tối, tháo giày, xoa vai | Nhạc chậm lại. Chữ: **"Còn bạn thì sao?"** |
@@ -132,7 +132,7 @@
 
 | Thời gian | Lời thoại |
 |---|---|
-| 0–8s | "Áp lực 8 tiếng, hướng ngoại cách mấy cũng bị bào mòn, những đêm deadline vắt kiệt bạn. Đã bao giờ bạn ước được thả lỏng giữa bầu trời? Điều đó sẽ thành sự thật với hồ bơi đáy kính pha lê." |
+| 0–8s | "Áp lực 8 tiếng, hướng ngoại cách mấy cũng bị bào mòn, những đêm deadline vắt kiệt bạn. Bạn khao khát được tự do? Giờ đây điều đó sẽ thành sự thật với hồ bơi đáy kính pha lê, chạm tới cả 5 giác quan." |
 | 8–18s | "Phượng hướng ngoại, mê thể thao, nhưng công việc bào mòn Phượng từ sáng tới tối. Thời gian đâu cho bạn bè, cho bản thân?" |
 | 18–25s | "Người trẻ không cần gì xa xỉ, chỉ cần vài giờ được hướng nội, được chữa lành." |
 | 25–40s | "Happy One Elite có hồ bơi đáy kính pha lê, nước ấm muối khoáng, bơi mà như bay. Có vườn treo để thiền, thư viện để đọc sách, pickleball, gym, chạy bộ để khỏe." |
@@ -144,7 +144,7 @@
 ## Caption đăng kèm
 
 Áp lực 8 tiếng, những đêm deadline vắt kiệt mình 😮‍💨
-Đã bao giờ bạn ước được thả lỏng giữa bầu trời? 💦
+Bạn khao khát được tự do, được là chính mình? 💦
 Cả ngày hướng ngoại, người trẻ tụi mình chỉ cần vài giờ hướng nội để chữa lành, học tập, chăm sóc và yêu thương bản thân. Và Phượng đã tìm thấy nơi đó: **hồ bơi đáy kính pha lê** tại **Happy One Elite** 💎
 
 Dự án Lam Phượng vô cùng tâm đắc. Chưa có giá đâu, nhưng có thông tin gì mới Phượng chia sẻ liền nha 😉
