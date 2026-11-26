@@ -18,7 +18,7 @@
 
 *Đã bao giờ bạn ước… được thả lỏng giữa bầu trời?*
 
-*Điều đó sẽ thành sự thật, với **hồ bơi đáy kính pha lê**."*
+*Điều đó sẽ thành sự thật, với **hồ bơi đáy kính pha lê**. Nơi chạm tới trọn vẹn… **cả 5 giác quan** của bạn."*
 
 *"Chào cả nhà, Lam Phượng đây!"*
 
@@ -53,6 +53,13 @@
 *"Hồ bơi vươn ra giữa hai tòa tháp. Bơi ngang qua, nhìn xuống là khoảng không, nhìn ra xa là toàn cảnh thành phố. **Bơi mà cứ như đang bay vậy đó.**"*
 
 *"Nước được gia nhiệt và điện phân muối khoáng, lúc nào cũng ấm áp, dịu nhẹ cho da. Tối muộn sau một ngày dài, ngâm mình ở đây là thấy mình được thả lỏng, được tự do, được quay về với chính mình."*
+
+*"Phượng nói hồ bơi này chạm tới cả 5 giác quan, là thật đó nha:"*
+- 🤲 *"**Xúc giác**: ngâm mình trong làn nước ấm muối khoáng."*
+- 👀 *"**Thị giác**: ngắm trọn Sài Gòn, không giới hạn tầm nhìn."*
+- 👂 *"**Thính giác**: chìm vào không gian yên tĩnh giữa lưng chừng trời."*
+- 👃 *"**Khứu giác**: hương thơm từ vườn thảo mộc ngay bên cạnh."*
+- 👅 *"**Vị giác**: bơi xong làm bữa BBQ trên cao, nhâm nhi trà ở vườn trà trên không."*
 
 *"Mà buồn thì sao? Phượng nhấc máy liền: **'Alo, qua nhà tao chơi đi! Mình làm bữa BBQ trên cao rồi lên bơi ngắm thành phố nè!'** Hồ bơi này với Phượng vừa là nơi chữa lành, vừa là nơi kết nối bạn bè, vừa là một nét đẳng cấp rất riêng."*
 
