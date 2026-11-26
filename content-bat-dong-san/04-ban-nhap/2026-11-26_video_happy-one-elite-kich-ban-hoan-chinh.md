@@ -1,7 +1,7 @@
 # KỊCH BẢN HOÀN CHỈNH – "Vài giờ hướng nội bên hồ bơi đáy kính pha lê"
 ### Happy One Elite × Lam Phượng
 
-> Thời lượng: ~2 phút 45 giây (YouTube, Facebook video, Reels dài). Bản cắt ngắn 60 giây ở cuối file.
+> Thời lượng: ~2 phút 35 giây (YouTube, Facebook video, Reels dài). Bản cắt ngắn 60 giây ở cuối file.
 > Công thức: **Hook → Nỗi đau (câu chuyện của Phượng) → Sự cần thiết → Dự án đáp ứng → Kết bài của Phượng**
 > Tiện ích và số liệu theo `03-du-an/happy-one-elite.md`.
 > Lưu ý câu chữ: dùng ý "tự do, tầm nhìn không giới hạn", **tránh** các câu như "thả lỏng giữa bầu trời", "bay giữa không trung", "nhìn xuống là khoảng không".
@@ -10,25 +10,27 @@
 
 ## PHẦN 1 – LỜI THOẠI LIỀN MẠCH (để chị Phượng đọc, học thoại)
 
-### 🎬 HOOK (0:00 – 0:30)
+### 🎬 HOOK (0:00 – 0:20)
 
-*"Áp lực 8 tiếng mỗi ngày. Bạn cười nói, hướng ngoại cách mấy… cũng bị bào mòn.*
+*"8 tiếng áp lực, cùng những đêm chạy deadline.*
 
-*Rồi những đêm chạy deadline, cố gắng vì tương lai… vắt kiệt bạn đến giọt cuối cùng.*
+*Chỉ còn vài giờ để dành cho bản thân.*
 
-*Bạn tha thiết giữ lại cho mình vài giờ để hướng nội. Bạn nghĩ đến sức khỏe, nghĩ đến việc học tập, nâng cấp bản thân. Bạn mong được chữa lành, được yêu thương bản thân thật nhiều… trong vài giờ ngắn ngủi ấy.*
+*Bạn nghĩ đến sức khỏe, đến việc học tập và nâng cấp bản thân.*
 
-*Bạn khao khát được tự do… được thật sự là chính mình?*
+*Bạn muốn được chữa lành, được yêu thương bản thân nhiều hơn.*
 
-*Giờ đây, điều đó sẽ thành sự thật, với **hồ bơi đáy kính pha lê**. Nước điện phân muối khoáng, tầm nhìn không giới hạn, chạm tới trọn vẹn… **cả 5 giác quan** của bạn.*
+*Bạn muốn được tự do.*
 
-*Cùng **39 tiện ích được chắt lọc**, tất cả hướng đến xây dựng sức khỏe, tinh thần, và nâng tầm trải nghiệm sống của bạn."*
+*Và tự do ấy sẽ thành sự thật, với **hồ bơi đáy kính pha lê**. Tầm nhìn không giới hạn. Trọn vẹn 5 giác quan.*
 
-### 👋 GIỚI THIỆU (0:30 – 0:40)
+*Cùng **39 tiện ích được chắt lọc**, giúp bạn mỗi ngày xây dựng sức khỏe, tinh thần, và nâng tầm trải nghiệm sống."*
+
+### 👋 GIỚI THIỆU (0:20 – 0:30)
 
 *"Chào cả nhà, Lam Phượng đây! Hôm nay Phượng muốn kể cả nhà nghe về một dự án mà Phượng thật sự, thật sự tâm đắc: **Happy One Elite**."*
 
-### 💔 NỖI ĐAU – CÂU CHUYỆN CỦA PHƯỢNG (0:40 – 1:00)
+### 💔 NỖI ĐAU – CÂU CHUYỆN CỦA PHƯỢNG (0:30 – 0:50)
 
 *"Nói thật nha, Phượng cũng là người như vậy đó. Hướng ngoại, thích gặp gỡ, thích thể hiện bản thân, mê thể thao lắm."*
 
@@ -36,11 +38,11 @@
 
 *"Thời gian đâu cho bạn bè? Thời gian đâu để tập luyện, để đọc một cuốn sách? Và thời gian đâu… để hỏi lòng mình một câu: **'Mình có ổn không?'**"*
 
-### 🌱 SỰ CẦN THIẾT (1:00 – 1:12)
+### 🌱 SỰ CẦN THIẾT (0:50 – 1:02)
 
 *"Phượng nhận ra, người trẻ tụi mình không cần những thứ quá xa xỉ. Tụi mình chỉ cần **những giờ hướng nội thật chất lượng**. Mà muốn vậy, thì nơi mình về mỗi tối không thể chỉ là chỗ để ngủ. **Nhà phải là nơi nuôi dưỡng mình.**"*
 
-### 💎 DỰ ÁN ĐÁP ỨNG (1:12 – 2:15)
+### 💎 DỰ ÁN ĐÁP ỨNG (1:02 – 2:05)
 
 **Giới thiệu nhanh**
 
@@ -75,7 +77,7 @@
 
 *"Sáng 6 giờ tập gym. 7 giờ skincare, ăn sáng. 8 giờ đi làm, tươi tỉnh cả ngày. Tối về bơi ngắm thành phố, đọc sách, thiền. **Cả ngày hướng ngoại, vài giờ hướng nội.** Đó mới là sống!"*
 
-### 💕 KẾT BÀI (2:15 – 2:45)
+### 💕 KẾT BÀI (2:05 – 2:35)
 
 *"Đây là dự án mà Lam Phượng vô cùng tâm đắc, và muốn thông tin đến quý anh chị."*
 
@@ -133,8 +135,8 @@
 
 | Thời gian | Lời thoại |
 |---|---|
-| 0–15s | "Áp lực 8 tiếng, hướng ngoại cách mấy cũng bị bào mòn. Những đêm deadline vắt kiệt bạn. Bạn chỉ tha thiết vài giờ hướng nội để chăm sức khỏe, học tập, chữa lành và yêu thương bản thân." |
-| 15–25s | "Bạn khao khát được tự do? Giờ đây điều đó sẽ thành sự thật với hồ bơi đáy kính pha lê: nước điện phân muối khoáng, tầm nhìn không giới hạn, chạm tới cả 5 giác quan." |
+| 0–15s | "8 tiếng áp lực, cùng những đêm chạy deadline. Chỉ còn vài giờ để dành cho bản thân. Bạn nghĩ đến sức khỏe, học tập, nâng cấp bản thân. Bạn muốn được chữa lành, được yêu thương bản thân nhiều hơn." |
+| 15–25s | "Bạn muốn được tự do. Và tự do ấy sẽ thành sự thật với hồ bơi đáy kính pha lê. Tầm nhìn không giới hạn. Trọn vẹn 5 giác quan." |
 | 25–40s | "Happy One Elite có 39 tiện ích được chắt lọc: gym, pickleball, chạy bộ cho sức khỏe; vườn treo, yoga, sauna để chữa lành; thư viện để nâng cấp bản thân." |
 | 40–55s | "Dự án Phượng vô cùng tâm đắc! Mà đừng gọi em nha, gọi chủ đầu tư, chưa có giá đâu… Giỡn thôi, cứ gọi em! Nhưng nhớ mua nha 😉" |
 | 55–60s | "Happy One Elite – Live Above, Live Elite!" |
