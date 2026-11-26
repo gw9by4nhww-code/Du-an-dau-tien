@@ -1,6 +1,8 @@
-# Content Bất Động Sản
+# Content Bất Động Sản – Lam Phượng
 
-Thư mục chuyên làm nội dung cho mảng bất động sản: tin đăng bán/cho thuê, bài mạng xã hội, kịch bản video ngắn, bài blog chuẩn SEO.
+Thư mục làm content thường trực của chị **Lam Phượng**, cùng trợ lý AI **An**: tin đăng bán/cho thuê, bài mạng xã hội, kịch bản video ngắn, bài blog chuẩn SEO.
+
+Trước khi viết, xem `ho-so-thuong-hieu.md` để giữ đúng giọng văn và thông tin của chị.
 
 ## Cấu trúc
 
@@ -14,6 +16,7 @@ Thư mục chuyên làm nội dung cho mảng bất động sản: tin đăng b�
 | `06-hinh-anh-video/` | Ảnh, video, thiết kế đi kèm |
 | `lich-dang-bai.md` | Lịch đăng bài theo tuần/tháng |
 | `tu-khoa-hashtag.md` | Từ khóa SEO và hashtag hay dùng |
+| `ho-so-thuong-hieu.md` | Hồ sơ thương hiệu cá nhân của chị Phượng |
 
 ## Quy trình làm một bài
 
