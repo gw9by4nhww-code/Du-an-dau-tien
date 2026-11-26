@@ -18,7 +18,9 @@
 
 *Bạn khao khát được tự do… được thật sự là chính mình?*
 
-*Giờ đây, điều đó sẽ thành sự thật, với **hồ bơi đáy kính pha lê**. Nước điện phân muối khoáng, tầm nhìn không giới hạn, chạm tới trọn vẹn… **cả 5 giác quan** của bạn."*
+*Giờ đây, điều đó sẽ thành sự thật, với **hồ bơi đáy kính pha lê**. Nước điện phân muối khoáng, tầm nhìn không giới hạn, chạm tới trọn vẹn… **cả 5 giác quan** của bạn.*
+
+*Cùng **39 tiện ích được chắt lọc**, tất cả hướng đến xây dựng sức khỏe và cuộc sống của chính bạn."*
 
 *"Chào cả nhà, Lam Phượng đây!"*
 
