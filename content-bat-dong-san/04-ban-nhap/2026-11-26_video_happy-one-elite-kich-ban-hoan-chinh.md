@@ -1,8 +1,8 @@
 # KỊCH BẢN HOÀN CHỈNH – "Vài giờ hướng nội bên hồ bơi đáy kính pha lê"
 ### Happy One Elite × Lam Phượng
 
-> Thời lượng: ~2 phút 35 giây (YouTube, Facebook video, Reels dài). Bản cắt ngắn 60 giây ở cuối file.
-> Công thức: **Hook → Nỗi đau (câu chuyện của Phượng) → Sự cần thiết → Dự án đáp ứng → Kết bài của Phượng**
+> Thời lượng: ~2 phút 40 giây (YouTube, Facebook video, Reels dài). Bản cắt ngắn 60 giây ở cuối file.
+> Công thức: **Hook → Nỗi đau (câu chuyện của Phượng) → Sự cần thiết → Dự án đáp ứng → Offer**
 > Tiện ích và số liệu theo `03-du-an/happy-one-elite.md`.
 > Lưu ý câu chữ: dùng ý "tự do, tầm nhìn không giới hạn", **tránh** các câu như "thả lỏng giữa bầu trời", "bay giữa không trung", "nhìn xuống là khoảng không".
 
@@ -75,7 +75,7 @@
 
 *"Sáng 6 giờ tập gym. 7 giờ skincare, ăn sáng. 8 giờ đi làm, tươi tỉnh cả ngày. Tối về bơi ngắm thành phố, đọc sách, thiền. **Cả ngày hướng ngoại, vài giờ hướng nội.** Đó mới là sống!"*
 
-### 💕 KẾT BÀI (2:05 – 2:35)
+### 🎁 OFFER (2:05 – 2:40)
 
 *"Đây là dự án mà Lam Phượng vô cùng tâm đắc, và muốn thông tin đến quý anh chị."*
 
@@ -83,7 +83,11 @@
 
 *(cười)*
 
-*"Nói giỡn thôi! Anh chị cứ gọi cho em nha. Có thông tin gì mới là em chia sẻ liền với anh chị."*
+*"Nói giỡn thôi! Giờ nè: anh chị bình luận **'5 GIÁC QUAN'** ngay dưới video. Phượng gửi tặng **bộ hình 39 tiện ích và hồ bơi đáy kính pha lê**, và anh chị sẽ là **người đầu tiên** Phượng báo khi có bảng giá nha!"*
+
+*"Có đứa bạn nào đang bị deadline bào mòn không? **Tag nó vô đây liền**, rủ nó về làm hàng xóm luôn!"*
+
+*"Còn bạn, vài giờ hướng nội mỗi ngày, bạn sẽ chọn **bơi, thiền hay đọc sách**? Kể Phượng nghe với!"*
 
 *"Nhưng mà… nhớ mua nha! 😉"*
 
@@ -115,7 +119,7 @@
 | 13 | 1:58–2:04 | Vườn treo 12A, yoga, sauna | Chữ: **TINH THẦN** |
 | 14 | 2:04–2:09 | Thư viện, vườn trà, mặt bằng căn 1PN+ | Chữ: **NÂNG CẤP BẢN THÂN** |
 | 15 | 2:09–2:15 | Cắt nhanh 6h gym, 7h skincare, 8h đi làm, tối bơi và đọc sách | Đồng hồ góc màn hình |
-| **KẾT** | | | |
+| **OFFER** | | | |
 | 16 | 2:15–2:30 | Phượng nghiêm túc, rồi xua tay "đừng gọi em", bật cười | Hiệu ứng âm thanh vui |
 | 17 | 2:30–2:40 | Phượng nháy mắt "nhớ mua nha" | Chữ: **📞 [SĐT/Zalo] – Lam Phượng** |
 | 18 | 2:40–2:45 | Logo, slogan | **Live Above, Live Elite** |
@@ -158,7 +162,8 @@ Dự án Lam Phượng vô cùng tâm đắc. Chưa có giá đâu, nhưng có t
 **Checklist trước khi quay**
 - [x] Hook đúng bản chị Phượng duyệt
 - [x] Thân bài đủ: nỗi đau → sự cần thiết → dự án đáp ứng, có trả lời ý "5 giác quan" mà hook đã hứa
-- [x] Kết bài đúng ý chị Phượng
+- [x] Offer: bình luận từ khóa, tag bạn bè, câu hỏi thảo luận, giữ câu đùa của chị Phượng
+- [ ] Xin phép chủ đầu tư / đơn vị phân phối trước khi gửi bộ hình cho khách
 - [x] Tên "hồ bơi đáy kính pha lê" đầy đủ
 - [x] Không dùng câu dễ hiểu lầm ("thả lỏng giữa bầu trời", "khoảng không").
 - [x] Không nêu giá, không cam kết lợi nhuận

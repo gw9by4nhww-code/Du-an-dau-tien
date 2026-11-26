@@ -32,12 +32,16 @@ Công thức **Nỗi đau → Giải pháp** (mẫu: `02-mau-noi-dung/mau-kich-b
 1. **Nêu vấn đề / nỗi đau** của khách: nguyên nhân, hoàn cảnh cụ thể, cảm xúc thật, để khách thấy "đúng là mình".
 2. **Khoét sâu** hậu quả nếu cứ tiếp tục như vậy (sức khỏe, tinh thần, thời gian, tiền bạc). Đồng cảm, không hù dọa.
 3. **Giải pháp**: giới thiệu từng tiện ích, điểm nổi bật của dự án, **mỗi cái gắn đúng với một nỗi đau** vừa nêu.
-4. **Kêu gọi hành động** nhẹ nhàng, thân thiện.
+4. **Offer** (KHÔNG gọi là "kết bài"): phần khiến người xem phải hành động: like, bình luận, chia sẻ, tag bạn, lưu bài, tranh luận, nhắn tin. Mỗi offer nên có:
+   - **1 lời mời chính**: bình luận từ khóa để nhận quà thông tin (bộ hình, mặt bằng, báo giá sớm…)
+   - **1 lời mời lan tỏa**: tag bạn bè, chia sẻ
+   - **1 câu hỏi mở** để mọi người bình luận, thảo luận
+   - Giữ chất duyên, đùa vui của Phượng
 - Khi rút gọn: **cắt chữ, không cắt ý cảm xúc**. Giữ đủ các nhịp: áp lực → vài giờ cho bản thân → sức khỏe, học tập, chữa lành, yêu thương bản thân → tự do → giải pháp.
 
 ## Câu chào / câu ký tên quen thuộc
 - Mở bài: [Ví dụ: "Chào cả nhà, Phượng đây ạ!"]
-- Kết bài: [Ví dụ: "Cần tư vấn cứ nhắn Phượng nha 💕"]
+- Offer: [Ví dụ: "Cần tư vấn cứ nhắn Phượng nha 💕"]
 
 ## Liên hệ (ghi vào cuối bài)
 - SĐT / Zalo: [...]
