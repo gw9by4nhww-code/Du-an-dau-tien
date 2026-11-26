@@ -22,6 +22,11 @@
 - Câu chữ nữ tính, có biểu tượng cảm xúc vừa phải 🌸🏡✨
 - Hay dùng hình ảnh trải nghiệm thật của chính Phượng (bơi, khám phá tiện ích) để kể về sản phẩm
 
+## Thông điệp tâm đắc của Phượng
+- **"Cả ngày hướng ngoại, chỉ cần vài giờ hướng nội."** Người trẻ cả ngày làm việc, giao tiếp, tiếp khách. Họ không cần tiện ích xa xỉ quá đà, chỉ cần vài giờ mỗi ngày để được là chính mình, vận động, chữa lành.
+- **"ĐƯỢC đến 2029 nhận nhà, chứ không phải PHẢI chờ."** Giãn thanh toán, không áp lực dòng tiền, mua nhà bằng đồng lương.
+- Hay dùng lịch trình một ngày (6h gym, 7h skincare, 8h đi làm, chiều thể thao, tối chữa lành) để kể chuyện.
+
 ## Cách viết kịch bản Phượng thích (BẮT BUỘC)
 Công thức **Nỗi đau → Giải pháp** (mẫu: `02-mau-noi-dung/mau-kich-ban-noi-dau-giai-phap.md`):
 1. **Nêu vấn đề / nỗi đau** của khách: nguyên nhân, hoàn cảnh cụ thể, cảm xúc thật, để khách thấy "đúng là mình".
