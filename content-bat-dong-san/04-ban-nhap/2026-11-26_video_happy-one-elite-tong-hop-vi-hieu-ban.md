@@ -1,8 +1,8 @@
 # KỊCH BẢN TỔNG HỢP – "Vì hiểu bạn"
 ### Happy One Elite × Lam Phượng
 
-> Cấu trúc chị Phượng đưa: **"Vì hiểu [nhu cầu / nỗi đau] → nên chủ đầu tư đã [giải pháp]"**, gồm 7 điều.
-> Thời lượng: ~3 phút.
+> Cấu trúc chị Phượng đưa: **"Vì hiểu [nhu cầu / nỗi đau] → nên chủ đầu tư đã [giải pháp]"**, gồm 8 điều.
+> Thời lượng: ~3 phút 15 giây.
 > Số liệu theo `03-du-an/happy-one-elite.md` và `03-du-an/so-sanh-du-an-khu-vuc.md`.
 > ⚠️ Còn chờ xác nhận:
 > - Số phút đến Bến Thành / trung tâm Quận 1 (không có trong tài liệu)
@@ -31,7 +31,7 @@
 
 *"Chào cả nhà, Lam Phượng đây! Hôm nay Phượng kể cả nhà nghe về **Happy One Elite**, một dự án được làm ra như thể… chủ đầu tư hiểu người trẻ tụi mình đến từng chi tiết."*
 
-### 💎 VÌ HIỂU BẠN (0:28 – 2:20)
+### 💎 VÌ HIỂU BẠN (0:28 – 2:40)
 
 **1. Thư giãn và chữa lành → hồ bơi đáy kính pha lê**
 
@@ -69,13 +69,25 @@
 
 *"**Vì hiểu** bạn cần trị liệu cả sức khỏe lẫn tinh thần, **nên** có yoga trên cao, vườn thiền giữa vườn treo tầng 12A, hồ thủy lực sục massage, khu sauna. Để bạn chữa lành, và phục hồi năng lượng sau mỗi ngày dài."*
 
-**7. Tài chính → tiến độ thanh toán**
+**7. Ngôi nhà thật sự của bạn → chuẩn bàn giao**
+
+*"**Vì hiểu** nhà phải là nơi thật sự thuộc về bạn, **nên** ngay từ khoảnh khắc bước vào, mọi thứ đã khác."*
+
+*"Cánh cửa chỉ mở khi nhận ra **khuôn mặt của bạn** và những người thân yêu nhất. Khóa cửa thông minh **FaceID 9 chức năng**. Đó mới chính là **ngôi nhà của bạn**."*
+
+*"Bước vào trong là sàn **gạch khổ lớn 60x120** liền mạch, sang trọng. **Hệ cửa nhôm kính rộng** cùng **ban công kính cong** đón trọn ánh sáng và tầm nhìn."*
+
+*"Gian bếp với **tủ bếp full trần**, thiết bị bếp châu Âu **Malloca**. Phòng tắm với **thiết bị vệ sinh thông minh Hafele**. **Rèm thông minh**, thiết bị điện thông minh, chỉ một chạm là cả căn nhà vận hành theo ý bạn."*
+
+*"Một căn hộ bàn giao như vậy, nghe thôi chưa đủ đâu… bạn phải **tận mắt nhìn, tận tay chạm** mới cảm được hết."*
+
+**8. Tài chính → tiến độ thanh toán**
 
 *"Và cuối cùng, **vì hiểu** bạn ái ngại lãi suất, áp lực dòng tiền, và có ước mơ được **mua nhà bằng chính đồng lương của mình**, **nên chủ đầu tư đã xây dựng một tiến độ thanh toán vô cùng linh hoạt**."*
 
 *"Thanh toán giãn đến 2029 mới nhận nhà, có khoảng thời gian **chỉ cần thanh toán 6 triệu một tháng**. Còn nếu tài chính mạnh, bạn có thể chọn thanh toán nhanh với chiết khấu **lên đến 17%**."*
 
-### 🔍 SO SÁNH KHU VỰC (2:20 – 2:45)
+### 🔍 SO SÁNH KHU VỰC (2:40 – 3:05)
 
 **Bản nêu tên dự án** (⚠️ chỉ dùng khi đã xác minh thông tin các dự án):
 
@@ -90,9 +102,9 @@
 
 *"Phượng cũng đã đi tham khảo các dự án xung quanh. Có dự án đã bàn giao, phù hợp với ai cần ở ngay. Có dự án phù hợp với ai muốn ở sát Hiệp Bình. Mỗi dự án có điểm mạnh riêng. Còn nếu bạn là người trẻ cần không gian chữa lành, thể thao ngay tại nhà, di chuyển thuận lợi và tiến độ thanh toán nhẹ nhàng, thì **Happy One Elite** là lựa chọn tối ưu nhất cho bạn."*
 
-### 🎁 OFFER (2:45 – 2:55)
+### 🎁 OFFER (3:05 – 3:15)
 
-*"Trong 7 điều 'vì hiểu bạn' của chủ đầu tư, **điều nào chạm đến anh chị nhất?** **Tag đứa bạn đang bị deadline bào mòn** vào nhé!"*
+*"Trong 8 điều 'vì hiểu bạn' của chủ đầu tư, **điều nào chạm đến anh chị nhất?** **Tag đứa bạn đang bị deadline bào mòn** vào nhé!"*
 
 ---
 
@@ -108,7 +120,8 @@
 | 4 | Bản đồ, số phút hiện lần lượt | **VÌ HIỂU BẠN CẦN DI CHUYỂN THUẬN LỢI** |
 | 5 | Chạy bộ, pickleball, cầu lông | **VÌ HIỂU BẠN CẦN KHỎE, NHẠY BÉN** |
 | 6 | Yoga trên cao, vườn treo 12A, hồ thủy lực, sauna | **VÌ HIỂU BẠN CẦN PHỤC HỒI** |
-| 7 | Đồ họa tiến độ thanh toán, "6 triệu/tháng", "17%" | **VÌ HIỂU NỖI LO TÀI CHÍNH** |
+| 7 | POV mở cửa: khóa FaceID nhận diện khuôn mặt, cửa mở ra căn hộ; lướt qua sàn gạch lớn, ban công kính cong, bếp Malloca, phòng tắm Hafele, rèm tự động kéo mở | **VÌ HIỂU ĐÂY LÀ NHÀ CỦA BẠN** |
+| 8 | Đồ họa tiến độ thanh toán, "6 triệu/tháng", "17%" | **VÌ HIỂU NỖI LO TÀI CHÍNH** |
 | So sánh | Phượng đứng trước bản đồ khu vực, các dự án hiện dạng thẻ | "Mỗi dự án một điểm mạnh" |
 | Offer | Phượng cười, chỉ xuống phần bình luận | "Điều nào chạm đến bạn nhất? 👇" |
 
@@ -119,7 +132,7 @@
 8 tiếng cười nói, những đêm deadline… chỉ còn vài giờ cho bản thân 😮‍💨
 Có một dự án làm ra như thể hiểu người trẻ đến từng chi tiết: **Happy One Elite** 💎
 
-💬 Trong 7 điều "vì hiểu bạn", điều nào chạm đến bạn nhất?
+💬 Trong 8 điều "vì hiểu bạn", điều nào chạm đến bạn nhất?
 👇 Tag đứa bạn đang bị deadline bào mòn vào nhé!
 
 #LamPhuong #HappyOneElite #LiveAboveLiveElite #hoboidaykinhphale #vihieuban #nguoitre #chualanh
@@ -129,7 +142,8 @@ Có một dự án làm ra như thể hiểu người trẻ đến từng chi ti
 ---
 **Checklist**
 - [x] Hook đúng bản chị Phượng duyệt
-- [x] Thứ tự 7 điều theo ý chị Phượng
+- [x] Thứ tự 8 điều theo ý chị Phượng (điều 7 chuẩn bàn giao, điều 8 tài chính)
+- [ ] Hỏi dự án đã có nhà mẫu chưa, ở đâu, để quay cảnh bàn giao thật
 - [x] Offer đơn giản: câu hỏi và tag bạn
 - [x] Không ghi "sân bay kế bên", "khu trung tâm"
 - [ ] Điền số phút đến Bến Thành / trung tâm Quận 1
