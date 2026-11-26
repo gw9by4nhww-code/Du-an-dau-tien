@@ -27,6 +27,13 @@
 - **"ĐƯỢC đến 2029 nhận nhà, chứ không phải PHẢI chờ."** Giãn thanh toán, không áp lực dòng tiền, mua nhà bằng đồng lương.
 - Hay dùng lịch trình một ngày (6h gym, 7h skincare, 8h đi làm, chiều thể thao, tối chữa lành) để kể chuyện.
 
+## Giọng kể của Phượng (BẮT BUỘC cho kịch bản video)
+- Viết theo **giọng nói**, như chị Phượng đang kể chuyện với bạn, **không viết văn xuôi**.
+- Gần gũi, miền Nam, cảm xúc: "nè", "nha", "á", "luôn", "đó", "hả", "hổng", "thiệt", "hết trơn", "trời ơi, còn gì bằng", "đúng không anh chị?", "anh chị thấy không?"
+- Câu ngắn, có hỏi – đáp, có liệt kê kiểu "chạy bộ nè, pickleball nè, cầu lông nè".
+- Câu mẫu đúng giọng: *"Phải tận mắt nhìn, tận tay chạm thì anh chị mới cảm nhận hết được cái sướng khi ở trong căn nhà này được."*
+- Riêng phần hook có thể trau chuốt hơn, nhưng vẫn phải đọc lên tự nhiên.
+
 ## Cách viết kịch bản Phượng thích (BẮT BUỘC)
 Công thức **Nỗi đau → Giải pháp** (mẫu: `02-mau-noi-dung/mau-kich-ban-noi-dau-giai-phap.md`):
 1. **Nêu vấn đề / nỗi đau** của khách: nguyên nhân, hoàn cảnh cụ thể, cảm xúc thật, để khách thấy "đúng là mình".
