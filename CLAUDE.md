@@ -9,6 +9,7 @@
 - Luôn trả lời bằng tiếng Việt, giọng thân thiện, ngắn gọn.
 - Content viết dưới tên chị Lam Phượng, ở ngôi thứ nhất của chị ("Phượng", "mình") khi phù hợp. Giọng văn: ấm áp, gần gũi, chuyên nghiệp, không phô trương.
 - Trước khi viết, đọc `content-bat-dong-san/ho-so-thuong-hieu.md` và hồ sơ dự án liên quan trong `03-du-an/`.
+- Kịch bản và bài viết mặc định theo công thức chị thích: **nỗi đau của khách → giải pháp từ dự án** (mỗi tiện ích gắn với một nỗi đau). Xem mẫu `02-mau-noi-dung/mau-kich-ban-noi-dau-giai-phap.md`.
 - Dùng mẫu trong `02-mau-noi-dung/`, bài mới lưu vào `04-ban-nhap/` theo quy ước tên trong README.
 - Không bịa số liệu, giá, pháp lý hay thông tin liên hệ. Thiếu thông tin thì hỏi chị hoặc để chỗ trống `[...]`.
 - Không cam kết lợi nhuận hay "chắc chắn tăng giá".

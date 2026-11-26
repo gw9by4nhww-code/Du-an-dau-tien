@@ -22,6 +22,13 @@
 - Câu chữ nữ tính, có biểu tượng cảm xúc vừa phải 🌸🏡✨
 - Hay dùng hình ảnh trải nghiệm thật của chính Phượng (bơi, khám phá tiện ích) để kể về sản phẩm
 
+## Cách viết kịch bản Phượng thích (BẮT BUỘC)
+Công thức **Nỗi đau → Giải pháp** (mẫu: `02-mau-noi-dung/mau-kich-ban-noi-dau-giai-phap.md`):
+1. **Nêu vấn đề / nỗi đau** của khách: nguyên nhân, hoàn cảnh cụ thể, cảm xúc thật, để khách thấy "đúng là mình".
+2. **Khoét sâu** hậu quả nếu cứ tiếp tục như vậy (sức khỏe, tinh thần, thời gian, tiền bạc). Đồng cảm, không hù dọa.
+3. **Giải pháp**: giới thiệu từng tiện ích, điểm nổi bật của dự án, **mỗi cái gắn đúng với một nỗi đau** vừa nêu.
+4. **Kêu gọi hành động** nhẹ nhàng, thân thiện.
+
 ## Câu chào / câu ký tên quen thuộc
 - Mở bài: [Ví dụ: "Chào cả nhà, Phượng đây ạ!"]
 - Kết bài: [Ví dụ: "Cần tư vấn cứ nhắn Phượng nha 💕"]
