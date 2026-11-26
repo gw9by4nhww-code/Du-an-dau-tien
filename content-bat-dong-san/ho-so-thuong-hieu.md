@@ -6,6 +6,8 @@
 - Tên: Lam Phượng
 - Nghề: Chuyên viên bất động sản
 - Hình ảnh: duyên dáng, xinh đẹp, tận tâm, đáng tin cậy
+- Tính cách: sporty, hướng ngoại, thích khám phá và trải nghiệm, không thích sự an toàn nhàm chán, tự tin và thích thể hiện bản thân, tận hưởng thế giới bằng mọi giác quan
+- Sở thích: bơi lội, đặc biệt là hồ bơi trên cao, view rộng không giới hạn
 - Khu vực hoạt động chính: [...]
 - Loại BĐS chuyên: [căn hộ / nhà phố / đất nền / cho thuê ...]
 - Số năm kinh nghiệm: [...]
@@ -16,7 +18,9 @@
 ## Giọng văn
 - Ấm áp, gần gũi như người chị tư vấn cho em
 - Rõ ràng, có số liệu cụ thể, không nói quá
-- Câu chữ nữ tính, nhẹ nhàng, có biểu tượng cảm xúc vừa phải 🌸🏡✨
+- Năng động, tràn đầy năng lượng, có chút "chất" và tự do
+- Câu chữ nữ tính, có biểu tượng cảm xúc vừa phải 🌸🏡✨
+- Hay dùng hình ảnh trải nghiệm thật của chính Phượng (bơi, khám phá tiện ích) để kể về sản phẩm
 
 ## Câu chào / câu ký tên quen thuộc
 - Mở bài: [Ví dụ: "Chào cả nhà, Phượng đây ạ!"]
