@@ -3,7 +3,7 @@
 
 > Cấu trúc chị Phượng đưa: **"Vì hiểu [nhu cầu / nỗi đau] → nên chủ đầu tư đã [giải pháp]"**, gồm 8 điều.
 > Thời lượng: ~3 phút 15 giây.
-> **Giọng kể**: viết theo cách chị Phượng nói chuyện (gần gũi, miền Nam, có "nè, nha, á, luôn, đúng không anh chị"), không viết văn xuôi.
+> **Giọng kể**: lịch sự, chân thành, gần gũi, gọn gàng, sang trọng.
 > Số liệu theo `03-du-an/happy-one-elite.md` và `03-du-an/so-sanh-du-an-khu-vuc.md`.
 > ⚠️ Còn chờ xác nhận:
 > - Số phút đến Bến Thành / trung tâm Quận 1 (không có trong tài liệu)
@@ -30,73 +30,65 @@
 
 ### 👋 GIỚI THIỆU
 
-*"Chào cả nhà, Phượng đây! Hôm nay Phượng phải kể anh chị nghe về cái dự án này nha, vì Phượng mê nó thiệt sự luôn á. **Happy One Elite** đó anh chị. Mà nói thiệt, đi coi xong Phượng chỉ có một cảm giác thôi: trời ơi, sao chủ đầu tư hiểu người trẻ tụi mình dữ vậy nè!"*
+*"Xin chào anh chị, Lam Phượng đây. Hôm nay Phượng muốn chia sẻ với anh chị một dự án mà Phượng thực sự tâm đắc: **Happy One Elite**. Bởi vì càng tìm hiểu, Phượng càng cảm nhận được một điều: chủ đầu tư thực sự hiểu người trẻ chúng ta."*
 
 ### 💎 VÌ HIỂU BẠN
 
 **1. Chỗ để thả lỏng → hồ bơi đáy kính pha lê**
 
-*"Đầu tiên nè. Cả ngày cười nói, làm việc, về tới nhà là mình chỉ muốn có một chỗ để thả lỏng thôi, đúng không anh chị? Hiểu vậy nè, nên chủ đầu tư làm luôn một cái hồ bơi có một không hai trong khu vực: **hồ bơi đáy kính pha lê**, nằm trên tầng thượng, vắt ngang qua hai tòa tháp luôn á."*
+*"Cả một ngày dài mình làm việc, mình giao tiếp, mình cười nói. Về đến nhà, mình chỉ cần một nơi để được thả lỏng."*
 
-*"Mà anh chị biết sao Phượng mê không? Vì nó chạm tới đủ 5 giác quan luôn đó."*
+*"Hiểu điều đó, chủ đầu tư đã tạo nên một hồ bơi có một không hai trong khu vực: **hồ bơi đáy kính pha lê**, nằm trên tầng thượng, vắt ngang giữa hai tòa tháp."*
 
-*"Ngâm mình xuống á, nước ấm, điện phân muối khoáng, mềm mềm trên da, đã gì đâu luôn."*
+*"Và hồ bơi ấy chạm đến trọn vẹn 5 giác quan của mình. Mình được ngâm mình trong làn nước ấm điện phân muối khoáng, rất dịu nhẹ cho da. Mình được ngắm toàn cảnh Sài Gòn lên đèn, tầm nhìn không giới hạn. Mình được chìm vào không gian yên tĩnh, tách khỏi mọi ồn ào. Mình được tận hưởng hương thơm từ vườn thảo mộc, một tách trà ở vườn trà trên không."*
 
-*"Mắt thì nhìn qua lớp kính, phóng ra xa là nguyên cái Sài Gòn lên đèn, không có gì che hết trơn."*
-
-*"Tai thì chỉ nghe tiếng nước, tiếng gió, hổng còn nghe tiếng còi xe nữa."*
-
-*"Mũi thì thơm thơm mùi vườn thảo mộc ngay trên tầng thượng."*
-
-*"Còn miệng hả? Bơi xong làm ly trà ở vườn trà trên không, hay làm bữa BBQ. Trời ơi, còn gì bằng nữa!"*
+*"Được thả lỏng, được tự do, được quay về với chính mình. Còn gì tuyệt vời hơn."*
 
 **2. Bạn bè, gia đình → tiệc BBQ trên cao**
 
-*"Mà nói tới BBQ nè. Bạn bè, gia đình là không thể thiếu được, đúng không anh chị? Buồn buồn cái là nhấc máy liền: 'Alo, đang ở đâu đó? Qua nhà tao chơi đi, làm bữa BBQ rồi lên bơi với tao nè!' Hay cuối tuần dắt ba mẹ, dắt con lên đó quây quần. Vậy là vui rồi."*
+*"Bạn bè và gia đình luôn là điều không thể thiếu. Chỉ một cuộc điện thoại, mình có thể mời bạn bè đến một bữa tiệc BBQ trên tầng thượng. Hay mỗi cuối tuần, cả gia đình quây quần bên nhau, ngay tại nhà mình."*
 
 **3. Tối ưu thời gian → phòng gym**
 
-*"Rồi, người trẻ tụi mình thời gian quý lắm, đúng không? Nên phòng gym nằm ngay trong dự án luôn. Lười đi tập hả? 'Anh PT ơi, qua tập cho em từ 6 tới 7 giờ sáng nha.' Tập xong, ăn sáng, make up, 8 giờ đi làm. Không mất một phút kẹt xe nào hết trơn á."*
+*"Người trẻ chúng ta luôn cần tối ưu thời gian. Phòng gym nằm ngay trong dự án, mình có thể hẹn PT đến tập từ 6 đến 7 giờ sáng. Ăn sáng, chuẩn bị, 8 giờ đi làm. Không mất một phút kẹt xe nào."*
 
 **4. Di chuyển → vị trí**
 
-*"Còn đi lại hả? Thuận lắm anh chị ơi. 3 phút là tới Depot Metro. 10 phút ra Gigamall. Ai hay đi công tác thì 15 phút là tới sân bay Tân Sơn Nhất. 17 phút là tới Landmark 81. Còn vô trung tâm Quận 1 thì [...] phút thôi."* ⚠️ *chờ xác nhận số phút*
+*"Về di chuyển, chỉ 3 phút đến Depot Metro, 10 phút đến Gigamall, 15 phút đến sân bay Tân Sơn Nhất cho những chuyến công tác, 17 phút đến Landmark 81, và [...] phút vào trung tâm Quận 1."* ⚠️ *chờ xác nhận số phút*
 
 **5. Sức khỏe, nhạy bén → thể thao**
 
-*"Rồi, muốn khỏe, muốn nhanh nhạy, muốn nạp mấy cái 'dopamine tốt' hả? Xuống nhà nè: đường chạy bộ nè, sân pickleball nè, cầu lông nè, khu thể thao đa năng nè. Chạy nhảy, đổ mồ hôi cùng bạn bè, khỏi đi đâu xa hết."*
+*"Muốn khỏe hơn, nhạy bén hơn, mình có đường chạy bộ, sân pickleball, cầu lông, khu thể thao đa năng. Rèn luyện sức khỏe cùng bạn bè, mà không cần đi đâu xa."*
 
 **6. Phục hồi → yoga, thiền, sauna**
 
-*"Còn mệt quá, cần phục hồi hả? Lên tập yoga trên cao, ra vườn thiền ở tầng 12A ngồi nghe gió, xuống hồ sục massage, vô xông sauna. Vậy là năng lượng đầy lại liền à."*
+*"Và khi cần phục hồi, mình có yoga trên cao, vườn thiền ở tầng 12A, hồ sục massage, khu sauna. Để mỗi ngày, mình được chữa lành và nạp lại năng lượng."*
 
 **7. Nhà thật sự của mình → chuẩn bàn giao**
 
-*"Mà nè, cái này Phượng thích lắm nè. Anh chị bước tới cửa nhà mình, cửa nhận ra mặt mình là mở. Khóa FaceID đó anh chị, chỉ nhận mặt mình với người nhà mình thôi. Đó, vậy mới thiệt sự là nhà của mình chứ!"*
+*"Hãy hình dung, mình bước đến một cánh cửa chỉ mở ra với khuôn mặt của mình, và của những người thân yêu nhất. Khóa cửa FaceID. Đó mới thực sự là ngôi nhà của mình."*
 
-*"Bước vô là sàn gạch khổ lớn 60x120, nhìn sang lắm. Cửa kính rộng, ban công kính cong, nắng vô, gió vô. Bếp thì tủ full trần, thiết bị bếp châu Âu Malloca. Phòng tắm thì đồ Hafele thông minh. Rèm cũng thông minh luôn, chạm cái là kéo."*
-
-*"Mà nói vậy thôi chứ… phải **tận mắt nhìn, tận tay chạm** thì anh chị mới cảm nhận hết được **cái sướng** khi ở trong căn nhà này được."*
+*"Sàn gạch khổ lớn 60x120, ban công kính cong, bếp châu Âu Malloca, thiết bị vệ sinh thông minh Hafele, rèm thông minh. Nhưng phải tận mắt nhìn, tận tay chạm thì anh chị mới cảm nhận hết được cái sướng khi ở trong căn nhà này."*
 
 **8. Nỗi lo tài chính → tiến độ thanh toán**
 
-*"Và cuối cùng nè, cái mà Phượng tâm đắc nhất. Người trẻ mình sợ gì nhất khi mua nhà? Sợ lãi suất, sợ áp lực dòng tiền, đúng không? Mà ai cũng mơ được mua nhà bằng chính đồng lương của mình."*
+*"Và điều cuối cùng, cũng là điều Phượng trân trọng nhất. Chủ đầu tư hiểu người trẻ ái ngại lãi suất, áp lực dòng tiền, và luôn mơ ước được mua nhà bằng chính đồng lương của mình."*
 
-*"Hiểu vậy nên chủ đầu tư làm tiến độ thanh toán linh hoạt lắm. **Được** đến 2029 mới nhận nhà nha, *được* chứ hổng phải *phải* đâu. Có khoảng thời gian chỉ cần đóng **6 triệu một tháng** thôi. Đó, anh chị thấy không? Còn ai tài chính mạnh thì thanh toán nhanh, chiết khấu tới **17%** luôn."*
+*"Vì vậy, tiến độ thanh toán được thiết kế vô cùng linh hoạt. Mình **được** đến 2029 mới nhận nhà, có khoảng thời gian chỉ cần thanh toán **6 triệu mỗi tháng**. Và nếu tài chính vững vàng, mình có thể thanh toán nhanh với chiết khấu lên đến **17%**."*
 
 ### 🔍 SO SÁNH KHU VỰC
 
 **Bản không nêu tên** (dùng mặc định):
 
-*"Nói thiệt, Phượng cũng đi coi mấy dự án xung quanh rồi. Dự án nào cũng có cái hay riêng hết á. Có chỗ bàn giao rồi, hợp với ai cần dọn vô ở liền. Có chỗ nằm sát Hiệp Bình, hợp với ai quen khu đó. Nhưng mà nếu anh chị là người trẻ, cần chỗ chữa lành, muốn tập thể thao ngay dưới nhà, đi lại thuận tiện, mà thanh toán lại nhẹ nhàng… thì **Happy One Elite** là lựa chọn tối ưu nhất cho anh chị luôn đó."*
+*"Phượng cũng đã tìm hiểu những dự án xung quanh. Mỗi dự án đều có điểm mạnh riêng: có dự án đã bàn giao, phù hợp với anh chị cần ở ngay; có dự án gần Hiệp Bình, phù hợp với anh chị đã quen khu vực đó. Nhưng nếu anh chị là người trẻ, cần một không gian để chữa lành, để rèn luyện sức khỏe ngay tại nhà, di chuyển thuận tiện và thanh toán nhẹ nhàng, thì **Happy One Elite** là lựa chọn tối ưu nhất."*
 
 **Bản nêu tên** (⚠️ chỉ dùng khi đã xác minh thông tin các dự án):
 
-*"…Fresca Riverside thì bàn giao rồi, hợp với ai cần ở liền. Urban Green với Gem Premium thì nằm bên Hiệp Bình, hợp với ai quen khu đó…"* (phần sau giữ như bản không nêu tên)
+*"…Fresca Riverside đã bàn giao, phù hợp với anh chị cần ở ngay. Urban Green và Gem Premium ở khu Hiệp Bình, phù hợp với anh chị đã quen khu vực đó…"* (phần sau giữ như bản không nêu tên)
 
 ### 🎁 OFFER
 
-*"Rồi, trong 8 điều đó, **điều nào chạm tới anh chị nhất** nè? Bình luận cho Phượng biết nha. Mà nhớ **tag đứa bạn đang bị deadline bào mòn** vô luôn nhé!"*
+*"Trong 8 điều ấy, **điều nào chạm đến anh chị nhất?** Anh chị chia sẻ cùng Phượng nhé. Và đừng quên **tag người bạn đang bị deadline bào mòn** vào đây."*
 
 ---
 
