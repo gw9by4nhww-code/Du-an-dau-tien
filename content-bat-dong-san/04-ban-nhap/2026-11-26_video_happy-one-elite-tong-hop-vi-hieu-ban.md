@@ -79,7 +79,7 @@
 
 *"Gian bếp với **tủ bếp full trần**, thiết bị bếp châu Âu **Malloca**. Phòng tắm với **thiết bị vệ sinh thông minh Hafele**. **Rèm thông minh**, thiết bị điện thông minh, chỉ một chạm là cả căn nhà vận hành theo ý bạn."*
 
-*"Một căn hộ bàn giao như vậy, nghe thôi chưa đủ đâu… bạn phải **tận mắt nhìn, tận tay chạm** mới cảm được hết."*
+*"Một căn hộ bàn giao như vậy, nghe thôi chưa đủ đâu… anh chị phải **tận mắt nhìn, tận tay chạm**, mới cảm nhận hết được cái sướng khi được sống trong căn nhà này."*
 
 **8. Tài chính → tiến độ thanh toán**
 
