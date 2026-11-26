@@ -74,7 +74,7 @@
 
 *"Và cuối cùng, điều mà Phượng **trân trọng và tâm đắc nhất**…"*
 
-*"Vì hiểu người trẻ ái ngại lãi suất, áp lực dòng tiền khi thanh toán, và luôn ước mơ được **mua nhà bằng chính đồng lương của mình**…"*
+*"Vì hiểu người trẻ ái ngại lãi suất, áp lực dòng tiền khi thanh toán, và luôn mong **sớm được an cư lạc nghiệp**, thanh toán từ từ, nhẹ nhàng…"*
 
 *"…nên tiến độ thanh toán **vô cùng linh hoạt**, kéo giãn đến tận **2029**. Có khoảng thời gian, mình **chỉ cần thanh toán 6 triệu mỗi tháng** thôi!"*
 
