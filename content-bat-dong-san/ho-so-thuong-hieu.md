@@ -33,6 +33,7 @@ Công thức **Nỗi đau → Giải pháp** (mẫu: `02-mau-noi-dung/mau-kich-b
 2. **Khoét sâu** hậu quả nếu cứ tiếp tục như vậy (sức khỏe, tinh thần, thời gian, tiền bạc). Đồng cảm, không hù dọa.
 3. **Giải pháp**: giới thiệu từng tiện ích, điểm nổi bật của dự án, **mỗi cái gắn đúng với một nỗi đau** vừa nêu.
 4. **Kêu gọi hành động** nhẹ nhàng, thân thiện.
+- Khi rút gọn: **cắt chữ, không cắt ý cảm xúc**. Giữ đủ các nhịp: áp lực → vài giờ cho bản thân → sức khỏe, học tập, chữa lành, yêu thương bản thân → tự do → giải pháp.
 
 ## Câu chào / câu ký tên quen thuộc
 - Mở bài: [Ví dụ: "Chào cả nhà, Phượng đây ạ!"]
