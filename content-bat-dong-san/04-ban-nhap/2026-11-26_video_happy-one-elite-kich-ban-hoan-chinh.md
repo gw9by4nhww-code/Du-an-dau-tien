@@ -1,7 +1,7 @@
 # KỊCH BẢN HOÀN CHỈNH – "Vài giờ hướng nội trên hồ bơi đáy kính pha lê"
 ### Happy One Elite × Lam Phượng
 
-> Thời lượng: ~2 phút 40 giây (YouTube, Facebook video, Reels dài). Bản cắt ngắn 60 giây ở cuối file.
+> Thời lượng: ~2 phút 30 giây (YouTube, Facebook video, Reels dài). Bản cắt ngắn 60 giây ở cuối file.
 > Công thức: **Mở đầu WOW → Nỗi đau → Sự cần thiết → Dự án đáp ứng → Kết bài của Phượng**
 > Tiện ích và số liệu theo `03-du-an/happy-one-elite.md`.
 
@@ -9,35 +9,20 @@
 
 ## PHẦN 1 – BẢN LỜI THOẠI LIỀN MẠCH (để chị Phượng đọc, học thoại)
 
-### 🎬 MỞ ĐẦU – CÚ HÚT (0:00 – 0:25)
+### 🎬 MỞ ĐẦU – CÚ HÚT (0:00 – 0:15)
 
-> Cấu trúc: chạm nỗi đau → gợi giấc mơ → hé lộ điểm khác biệt (hồ bơi đáy kính pha lê) → để lại tò mò "ở đâu? như thế nào?"
+*"Áp lực 8 tiếng mỗi ngày. Bạn cười nói, hướng ngoại cách mấy… cũng bị bào mòn.*
+*Rồi những đêm chạy deadline, cố gắng vì tương lai… vắt kiệt bạn đến giọt cuối cùng.*
 
-*(Giọng chậm, trầm, nhìn thẳng camera)*
+*Ngay lúc này, bạn thật sự cần một nơi cho riêng mình. Để chữa lành. Để lớn lên.*
 
-*"Dù bạn có hướng ngoại đến đâu… thì 8 tiếng làm việc mỗi ngày, cộng thêm những đêm thức trắng chạy deadline, cũng đủ để bào mòn bạn từng chút, từng chút một."*
+*Đã bao giờ bạn ước… được thả lỏng giữa bầu trời?*
 
-*"Bạn cười với cả thế giới. Nhưng đã bao giờ… bạn mơ được buông hết mọi thứ, thả lỏng cơ thể, và **bay giữa bầu trời** chưa?"*
-
-*(Ngừng 1 nhịp. Nhạc bùng lên.)*
-
-*"Giấc mơ đó… sắp thành sự thật. Vì Phượng đã tìm ra nó."*
-
-*"Một **hồ bơi đáy kính pha lê**, vắt ngang giữa hai tòa tháp, lơ lửng trên tầng thượng. Nơi bạn bơi mà như đang bay. Dưới chân là khoảng không trong vắt. Trước mắt là cả Sài Gòn lấp lánh."*
-
-*"Hồ bơi ấy ở đâu? Và làm sao để nó trở thành… **hồ bơi của chính bạn**? Ở lại với Phượng vài phút thôi nha."*
+*Điều đó sẽ thành sự thật, với **hồ bơi đáy kính pha lê**."*
 
 *"Chào cả nhà, Lam Phượng đây!"*
 
----
-
-**🔥 Phương án hút ngắn (3–5 giây đầu cho TikTok / Reels):**
-
-*"8 tiếng làm việc. 3 tiếng chạy deadline. 0 phút cho chính mình.*
-*Bạn có muốn một nơi để… bay giữa bầu trời không?"*
-*(cắt sang cảnh hồ bơi đáy kính pha lê)*
-
-### 💔 THÂN BÀI 1 – NỖI ĐAU (0:25 – 0:55)
+### 💔 THÂN BÀI 1 – NỖI ĐAU (0:15 – 0:45)
 
 *"Phượng là người hướng ngoại. Phượng thích gặp gỡ, thích nói cười, thích thể hiện bản thân, mê thể thao lắm."*
 
@@ -49,7 +34,7 @@
 
 *"Thời gian đâu cho bạn bè? Thời gian đâu để học thêm, để phát triển bản thân? Thời gian đâu để tập luyện, để chăm sóc sức khỏe? Và thời gian đâu… để yêu thương chính mình?"*
 
-### 🌱 THÂN BÀI 2 – SỰ CẦN THIẾT (0:55 – 1:15)
+### 🌱 THÂN BÀI 2 – SỰ CẦN THIẾT (0:45 – 1:05)
 
 *"Phượng nhận ra một điều: người trẻ tụi mình không cần những thứ quá xa xỉ, quá đà."*
 
@@ -57,7 +42,7 @@
 
 *"Mà muốn vậy, thì nơi mình về mỗi tối không thể chỉ là chỗ để ngủ. **Nhà phải là nơi nuôi dưỡng mình.**"*
 
-### 💎 THÂN BÀI 3 – DỰ ÁN ĐÁP ỨNG (1:15 – 2:15)
+### 💎 THÂN BÀI 3 – DỰ ÁN ĐÁP ỨNG (1:05 – 2:05)
 
 *"Và đó là lý do Phượng muốn giới thiệu với cả nhà: **Happy One Elite**, của chủ đầu tư Vạn Xuân Group, ở 218 Tam Bình, TP.HCM. Dự án vừa nhận giải thiết kế kiến trúc căn hộ tốt nhất TP.HCM năm 2026 của PropertyGuru."*
 
@@ -89,7 +74,7 @@
 
 *"39 tiện ích, tất cả luôn sẵn sàng để phục vụ đúng những điều mà người trẻ tụi mình cần nhất."*
 
-### 💕 KẾT BÀI (2:15 – 2:40)
+### 💕 KẾT BÀI (2:05 – 2:30)
 
 *"Đây là dự án mà Lam Phượng vô cùng tâm đắc, và muốn thông tin đến quý anh chị."*
 
@@ -109,11 +94,10 @@
 
 | # | Thời gian | Hình ảnh | Âm thanh / chữ trên màn hình |
 |---|---|---|---|
-| 1 | 0:00–0:08 | Cắt nhanh, tông xám: Phượng bước ra khỏi văn phòng lúc trời tối, đồng hồ 8 tiếng, màn hình laptop lúc nửa đêm | Nhạc trầm, tiếng gõ phím, tiếng đồng hồ tích tắc. Chữ: **"8 tiếng làm việc. Những đêm chạy deadline."** |
-| 2 | 0:08–0:13 | Phượng nhắm mắt, ngả đầu ra sau | Lời thoại "bay giữa bầu trời". Nhạc lặng hẳn 1 giây |
-| 2b | 0:13–0:22 | **Cảnh WOW**: máy quay xuyên qua đáy kính từ dưới lên, lộ hồ bơi đáy kính pha lê nối hai tháp, Sài Gòn về đêm | Nhạc bùng lên. Chữ: **"Hồ bơi đáy kính pha lê – bơi mà như bay"** |
-| 2c | 0:22–0:25 | Phượng mỉm cười bí ẩn, nhìn camera | Chữ: **"Ở đâu?"** |
-| 3 | 0:12–0:25 | Cắt nhanh: Phượng họp, bắt tay khách, nói điện thoại, cười gượng | Nhạc nhanh, tiếng ồn văn phòng, còi xe |
+| 1 | 0:00–0:06 | Tông xám, cắt nhanh: Phượng cười nói với khách → rời văn phòng lúc trời tối → laptop lúc nửa đêm | Tiếng đồng hồ tích tắc, gõ phím. Chữ: **"8 tiếng. Deadline. Kiệt sức."** |
+| 2 | 0:06–0:10 | Phượng nhắm mắt, ngả đầu ra sau | "Đã bao giờ bạn ước… được thả lỏng giữa bầu trời?" Nhạc lặng 1 giây |
+| 2b | 0:10–0:15 | **Cảnh WOW**: máy quay xuyên đáy kính từ dưới lên, lộ hồ bơi đáy kính pha lê nối hai tháp, Sài Gòn về đêm | Nhạc bùng lên. Chữ: **"Hồ bơi đáy kính pha lê"** |
+| 3 | 0:15–0:25 | Cắt nhanh: Phượng họp, bắt tay khách, nói điện thoại, cười gượng | Nhạc nhanh, tiếng ồn văn phòng, còi xe |
 | 4 | 0:25–0:35 | 8 giờ tối, Phượng ngồi laptop trong phòng tối, tháo giày, xoa vai | Nhạc chậm lại. Chữ: **"Còn bạn thì sao?"** |
 | 5 | 0:35–0:45 | Cận mặt Phượng, ánh đèn bàn | Chữ lần lượt: *bạn bè? học tập? sức khỏe? yêu bản thân?* |
 | 6 | 0:45–1:05 | Phượng ngồi bậu cửa sổ, nói chậm, chân thành | Chữ lớn: **"Cả ngày hướng ngoại – vài giờ hướng nội"** |
@@ -141,8 +125,8 @@
 
 | Thời gian | Lời thoại |
 |---|---|
-| 0–5s | "8 tiếng làm việc. 3 tiếng chạy deadline. 0 phút cho chính mình. Bạn có muốn một nơi để… bay giữa bầu trời không?" (cắt sang hồ bơi đáy kính pha lê) |
-| 5–18s | "Phượng hướng ngoại, mê thể thao, nhưng công việc bào mòn Phượng từ sáng tới tối. Thời gian đâu cho bạn bè, cho bản thân?" |
+| 0–8s | "Áp lực 8 tiếng, hướng ngoại cách mấy cũng bị bào mòn, những đêm deadline vắt kiệt bạn. Đã bao giờ bạn ước được thả lỏng giữa bầu trời? Điều đó sẽ thành sự thật với hồ bơi đáy kính pha lê." |
+| 8–18s | "Phượng hướng ngoại, mê thể thao, nhưng công việc bào mòn Phượng từ sáng tới tối. Thời gian đâu cho bạn bè, cho bản thân?" |
 | 18–25s | "Người trẻ không cần gì xa xỉ, chỉ cần vài giờ được hướng nội, được chữa lành." |
 | 25–40s | "Happy One Elite có hồ bơi đáy kính pha lê, nước ấm muối khoáng, bơi mà như bay. Có vườn treo để thiền, thư viện để đọc sách, pickleball, gym, chạy bộ để khỏe." |
 | 40–52s | "Dự án Phượng vô cùng tâm đắc! Mà đừng gọi em nha, gọi chủ đầu tư, chưa có giá đâu… Giỡn thôi, cứ gọi em! Nhưng nhớ mua nha 😉" |
@@ -152,8 +136,8 @@
 
 ## Caption đăng kèm
 
-Dù hướng ngoại đến đâu, 8 tiếng làm việc và những đêm chạy deadline cũng đủ bào mòn mình 😮‍💨
-Đã bao giờ bạn mơ được thả lỏng, bay giữa bầu trời chưa? 💦
+Áp lực 8 tiếng, những đêm deadline vắt kiệt mình 😮‍💨
+Đã bao giờ bạn ước được thả lỏng giữa bầu trời? 💦
 Cả ngày hướng ngoại, người trẻ tụi mình chỉ cần vài giờ hướng nội để chữa lành, học tập, chăm sóc và yêu thương bản thân. Và Phượng đã tìm thấy nơi đó: **hồ bơi đáy kính pha lê** tại **Happy One Elite** 💎
 
 Dự án Lam Phượng vô cùng tâm đắc. Chưa có giá đâu, nhưng có thông tin gì mới Phượng chia sẻ liền nha 😉
