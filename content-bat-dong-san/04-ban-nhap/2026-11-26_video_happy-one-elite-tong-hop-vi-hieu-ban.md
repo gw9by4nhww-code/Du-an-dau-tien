@@ -6,7 +6,6 @@
 > **Giọng kể**: lịch sự, chân thành, gần gũi, gọn gàng, sang trọng.
 > Số liệu theo `03-du-an/happy-one-elite.md` và `03-du-an/so-sanh-du-an-khu-vuc.md`.
 > ⚠️ Còn chờ xác nhận:
-> - Số phút đến Bến Thành / trung tâm Quận 1 (không có trong tài liệu)
 > - Chính sách thanh toán (~6 triệu/tháng, chiết khấu đến 17%) do chị Phượng cung cấp
 > - Thông tin các dự án lân cận
 
