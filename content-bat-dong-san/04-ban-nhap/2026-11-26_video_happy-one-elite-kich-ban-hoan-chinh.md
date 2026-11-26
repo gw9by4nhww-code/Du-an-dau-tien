@@ -20,7 +20,7 @@
 
 *Bạn thật sự muốn tự do.*
 
-*Và tự do ấy sẽ đến mỗi ngày, với **hồ bơi đáy kính pha lê**. Tầm nhìn không giới hạn. Trọn vẹn 5 giác quan, như được bay vào không trung.*
+*Và tự do ấy sẽ đến mỗi ngày, với **hồ bơi đáy kính pha lê**. Tầm nhìn không giới hạn. Trọn vẹn 5 giác quan, được thả lỏng, được tự do.*
 
 *Cùng **39 tiện ích được chắt lọc**, giúp bạn xây dựng sức khỏe, tinh thần, và nâng tầm trải nghiệm sống mỗi ngày."*
 
@@ -134,7 +134,7 @@
 | Thời gian | Lời thoại |
 |---|---|
 | 0–15s | "8 tiếng cười nói, cùng những đêm chạy deadline… chỉ còn vài giờ để dành cho bản thân. Bạn khao khát sức khỏe, khao khát được học tập, nâng cấp bản thân. Bạn muốn được chữa lành, được yêu thương bản thân nhiều hơn." |
-| 15–25s | "Bạn thật sự muốn tự do. Và tự do ấy sẽ đến mỗi ngày, với hồ bơi đáy kính pha lê. Tầm nhìn không giới hạn. Trọn vẹn 5 giác quan, như được bay vào không trung." |
+| 15–25s | "Bạn thật sự muốn tự do. Và tự do ấy sẽ đến mỗi ngày, với hồ bơi đáy kính pha lê. Tầm nhìn không giới hạn. Trọn vẹn 5 giác quan, được thả lỏng, được tự do." |
 | 25–40s | "Happy One Elite có 39 tiện ích được chắt lọc: gym, pickleball, chạy bộ cho sức khỏe; vườn treo, yoga, sauna để chữa lành; thư viện để nâng cấp bản thân." |
 | 40–55s | "Dự án Phượng vô cùng tâm đắc! Mà đừng gọi em nha, gọi chủ đầu tư, chưa có giá đâu… Giỡn thôi, cứ gọi em! Nhưng nhớ mua nha 😉" |
 | 55–60s | "Happy One Elite – Live Above, Live Elite!" |
@@ -160,7 +160,7 @@ Dự án Lam Phượng vô cùng tâm đắc. Chưa có giá đâu, nhưng có t
 - [x] Thân bài đủ: nỗi đau → sự cần thiết → dự án đáp ứng, có trả lời ý "5 giác quan" mà hook đã hứa
 - [x] Kết bài đúng ý chị Phượng
 - [x] Tên "hồ bơi đáy kính pha lê" đầy đủ
-- [x] Không dùng câu dễ hiểu lầm ("thả lỏng giữa bầu trời", "khoảng không"). Câu "như được bay vào không trung" trong hook do chị Phượng chọn.
+- [x] Không dùng câu dễ hiểu lầm ("thả lỏng giữa bầu trời", "khoảng không").
 - [x] Không nêu giá, không cam kết lợi nhuận
 - [ ] Điền SĐT/Zalo
 - [ ] Xin file phối cảnh gốc chất lượng cao từ chủ đầu tư / đơn vị phân phối
