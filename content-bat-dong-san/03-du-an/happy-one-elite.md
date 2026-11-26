@@ -99,7 +99,13 @@ Giá bán: **chưa có trong tài liệu**.
 7. Nội thất bàn giao cao cấp đến từ châu Âu
 8. Hồ bơi đáy kính trên cao lần đầu xuất hiện
 
+## Góc nhìn bán hàng của chị Phượng
+- **"ĐƯỢC đến 2029 mới nhận nhà, chứ không phải PHẢI chờ."** Thời gian xây dựng dài giúp giãn thanh toán. Khách đỡ áp lực dòng tiền, có thể không cần vay ngân hàng, không lo lãi suất, mua nhà bằng đồng lương.
+  - Khi viết content: chỉ đưa con số cụ thể (% mỗi đợt) khi đã có lịch thanh toán chính thức.
+  - Viết "có thể", "phù hợp với thu nhập hằng tháng". Không viết khẳng định tuyệt đối kiểu "100% không cần vay".
+
 ## Còn thiếu / cần hỏi
+- **Lịch thanh toán chính thức** (số đợt, % mỗi đợt, thời gian giữa các đợt). Đây là căn cứ cho thông điệp "được đến 2029 nhận nhà".
 - Bảng giá, chính sách thanh toán, chiết khấu
 - Hồ bơi dành riêng cư dân hay có thu phí, kích thước hồ
 

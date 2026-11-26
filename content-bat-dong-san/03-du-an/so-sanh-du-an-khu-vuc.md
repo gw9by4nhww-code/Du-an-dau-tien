@@ -33,8 +33,10 @@
 8. Gần Depot Metro Hiệp Bình Phước (3 phút), Bệnh viện Đông Sài Gòn (1 phút)
 
 ## Điểm khách có thể băn khoăn (chuẩn bị câu trả lời)
-- **Phải chờ đến 2029 mới nhận nhà.** Dự án đã bàn giao như Fresca Riverside thì ở được ngay.
-  - Gợi ý trả lời: thời gian chờ giúp giãn tiến độ thanh toán; MB bảo lãnh dự án.
+- **Thời gian nhận nhà 2029.** Cách nói của chị Phượng: khách **ĐƯỢC** đến 2029 mới nhận nhà, chứ không phải **PHẢI** chờ.
+  - Thời gian xây dựng dài nghĩa là tiền được giãn ra theo tiến độ. Khách đỡ áp lực dòng tiền, có thể không cần vay ngân hàng, không phải lo lãi suất, mua nhà bằng chính đồng lương tích lũy hằng tháng.
+  - So với dự án đã bàn giao: mua nhà có sẵn thường phải trả gần hết hoặc vay ngay một khoản lớn.
+  - ⚠️ Cần lịch thanh toán chính thức để chứng minh: mỗi đợt bao nhiêu %, cách nhau bao lâu.
 - **Giá:** chưa có bảng giá chính thức. Nếu cao hơn mặt bằng khu vực thì phải giải thích bằng tiện ích, thiết kế và nội thất bàn giao, không hứa tăng giá.
 - **Mật độ dân:** khoảng 1.200 cư dân, mật độ xây dựng 39,87%.
 
