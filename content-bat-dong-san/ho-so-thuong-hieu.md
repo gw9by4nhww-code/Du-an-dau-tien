@@ -32,11 +32,13 @@ Công thức **Nỗi đau → Giải pháp** (mẫu: `02-mau-noi-dung/mau-kich-b
 1. **Nêu vấn đề / nỗi đau** của khách: nguyên nhân, hoàn cảnh cụ thể, cảm xúc thật, để khách thấy "đúng là mình".
 2. **Khoét sâu** hậu quả nếu cứ tiếp tục như vậy (sức khỏe, tinh thần, thời gian, tiền bạc). Đồng cảm, không hù dọa.
 3. **Giải pháp**: giới thiệu từng tiện ích, điểm nổi bật của dự án, **mỗi cái gắn đúng với một nỗi đau** vừa nêu.
-4. **Offer** (KHÔNG gọi là "kết bài"): phần khiến người xem phải hành động: like, bình luận, chia sẻ, tag bạn, lưu bài, tranh luận, nhắn tin. Mỗi offer nên có:
-   - **1 lời mời chính**: bình luận từ khóa để nhận quà thông tin (bộ hình, mặt bằng, báo giá sớm…)
-   - **1 lời mời lan tỏa**: tag bạn bè, chia sẻ
-   - **1 câu hỏi mở** để mọi người bình luận, thảo luận
-   - Giữ chất duyên, đùa vui của Phượng
+4. **Offer** (KHÔNG gọi là "kết bài"):
+   - **KHÔNG BAO GIỜ offer mua bán** trong kịch bản/video: không báo giá, không "nhắn để nhận bảng giá", không "đăng ký tư vấn". Video là thông tin, giải pháp cho nỗi đau, cái mới, cái wow, sự tò mò.
+   - Câu mua bán nếu có chỉ là **đùa** ("nhớ mua nha… giỡn thôi! 😉").
+   - Offer chọn kiểu **nhẹ nhàng nhất** để người xem bình luận, tag, chia sẻ, lưu bài. Ví dụ:
+     - "Tag đứa bạn đang bị deadline bào mòn, rủ về làm hàng xóm sớm đi!"
+     - "Theo anh chị, để chữa lành cần tiện ích gì nhất?"
+     - "Bạn chọn A hay B? Kể Phượng nghe với!"
 - Khi rút gọn: **cắt chữ, không cắt ý cảm xúc**. Giữ đủ các nhịp: áp lực → vài giờ cho bản thân → sức khỏe, học tập, chữa lành, yêu thương bản thân → tự do → giải pháp.
 
 ## Câu chào / câu ký tên quen thuộc
