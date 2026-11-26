@@ -13,7 +13,7 @@
 | Quy mô | 2 tháp, 25 tầng + rooftop, 784 SP | 2 tháp, 23 tầng, 734 căn + 6 biệt thự | — | — | — |
 | Giá tham khảo | Chưa có bảng giá chính thức (tin rao ghi "từ 59,8 tr/m²", chưa xác minh) | Từ ~3,6 tỷ/căn | Từ ~2,77 tỷ/căn | — | ~40–46 tr/m², 2PN ~2,3–3,1 tỷ (giá thứ cấp) |
 | Tình trạng | Khởi công 10/2026, bàn giao Q3–4/2029 | Đang mở bán | Đang mở bán | — | Đã bàn giao |
-| Điểm nổi bật | Hồ bơi đáy kính trên cao, 39 tiện ích, giải kiến trúc PropertyGuru 2026 | — | — | — | Có sổ, ở ngay |
+| Điểm nổi bật | Hồ bơi đáy kính pha lê trên cao, 39 tiện ích, giải kiến trúc PropertyGuru 2026 | — | — | — | Có sổ, ở ngay |
 
 "—" là chưa tìm được thông tin đáng tin cậy.
 

@@ -83,7 +83,7 @@ Live Above, Live Elite ✨
 |---|---|---|
 | Thứ 2 | "Một ngày sống khỏe ở Happy One Elite" | Lịch trình từ 6h sáng đến 10h tối gắn với từng tiện ích |
 | Thứ 3 | Thể thao | Chạy bộ, pickleball, cầu lông, gym, sân thể thao trên cao |
-| Thứ 4 | Hồ bơi đáy kính | Bài review hồ bơi (đã có trong `04-ban-nhap/`) |
+| Thứ 4 | Hồ bơi đáy kính pha lê | Bài review hồ bơi (đã có trong `04-ban-nhap/`) |
 | Thứ 5 | Chữa lành | Yoga, sauna, vườn treo âm thanh – ánh sáng tầng 12A |
 | Thứ 6 | Làm việc tại nhà | Căn 1PN+, officetel, vườn xanh công việc |
 
@@ -92,7 +92,7 @@ Live Above, Live Elite ✨
 - ☀️ **7:00** Yoga đón nắng trên tầng thượng
 - 💻 **9:00** Làm việc ở vườn xanh công việc hoặc phòng làm việc riêng trong căn 1PN+
 - 🏸 **17:30** Một trận pickleball với hàng xóm
-- 🌇 **18:30** Bơi ngắm hoàng hôn ở hồ bơi đáy kính
+- 🌇 **18:30** Bơi ngắm hoàng hôn ở hồ bơi đáy kính pha lê
 - 🧖‍♀️ **19:30** Xông sauna, thư giãn
 - 🍵 **20:30** Uống trà trên không, ngắm thành phố lên đèn
 

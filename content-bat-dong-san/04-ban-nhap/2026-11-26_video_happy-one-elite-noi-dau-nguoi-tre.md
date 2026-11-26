@@ -31,7 +31,7 @@
 | 20–26s | Phượng nhìn thẳng camera, giọng chân thành | "Phượng hiểu cảm giác đó. Tụi mình còn trẻ, mà sức khỏe với tinh thần cứ bị bào mòn từng ngày. Vấn đề không phải mình lười, mà là **nơi mình sống không giúp mình sống khỏe**." |
 | **GIẢI PHÁP** | | |
 | 26–34s | Chuyển cảnh sáng bừng: phối cảnh Happy One Elite, đường chạy bộ, sân pickleball | "Còn ở **Happy One Elite**, xuống nhà là có đường chạy bộ, sân pickleball, cầu lông, phòng gym. Xỏ giày vào là tập, khỏi kẹt xe!" |
-| 34–44s | Phối cảnh hồ bơi đáy kính trên cao nối hai tòa tháp | "Mê bơi thì có **hồ bơi đáy kính pha lê trên tầng thượng**. Nước ấm, muối khoáng, tối bơi vẫn dễ chịu. Bơi mà như bay giữa không trung luôn!" |
+| 34–44s | Phối cảnh hồ bơi đáy kính pha lê trên cao nối hai tòa tháp | "Mê bơi thì có **hồ bơi đáy kính pha lê trên tầng thượng**. Nước ấm, muối khoáng, tối bơi vẫn dễ chịu. Bơi mà như bay giữa không trung luôn!" |
 | 44–52s | Phối cảnh yoga đón nắng, sauna, vườn treo tầng 12A | "Stress thì lên tầng thượng tập yoga đón nắng, xông sauna, hay ra vườn treo nghe gió, nghe tiếng sỏi. Tinh thần được chữa lành mỗi ngày." |
 | 52–59s | Mặt bằng căn 1PN+ có phòng làm việc, vườn xanh công việc | "Làm việc ở nhà? Căn 1PN+ có phòng làm việc riêng, hoặc ra vườn xanh ngồi làm giữa cây lá, khỏi ra quán cà phê ồn ào." |
 | 59–65s | Bản đồ kết nối, hiện số phút | "3 phút ra Depot Metro, 17 phút tới Landmark 81. Gần trung tâm mà vẫn có không gian xanh để về." |
@@ -51,7 +51,7 @@
 
 ## Caption đăng kèm
 Người trẻ không lười, chỉ là nơi mình sống chưa giúp mình sống khỏe 🌿
-Happy One Elite: chạy bộ, pickleball, gym, hồ bơi đáy kính, yoga, sauna… ngay dưới chân nhà 💪
+Happy One Elite: chạy bộ, pickleball, gym, hồ bơi đáy kính pha lê, yoga, sauna… ngay dưới chân nhà 💪
 Bình luận "SỐNG KHỎE" để Phượng gửi thông tin nha 💕
 
 #LamPhuong #HappyOneElite #LiveAboveLiveElite #songkhoe #nguoitre #sporty #batdongsan

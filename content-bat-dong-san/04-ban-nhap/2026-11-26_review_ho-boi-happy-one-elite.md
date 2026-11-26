@@ -1,4 +1,4 @@
-# Review hồ bơi đáy kính trên cao – Happy One Elite
+# Review hồ bơi đáy kính pha lê trên cao – Happy One Elite
 
 > Viết từ cảm nhận của chị Phượng, đối chiếu với tài liệu đào tạo dự án 20.11.2026. Hồ sơ dự án: `03-du-an/happy-one-elite.md`.
 > Tinh thần: sporty, hướng ngoại, thích khám phá, tự tin khoe cá tính, "bay giữa không trung không giới hạn".
@@ -37,14 +37,14 @@ Sáng chạy bộ, trưa tắm nắng, chiều bơi ngắm hoàng hôn, tối x�
 Ai cũng mê sống chất, sống năng động như Phượng thì nhắn ngay để Phượng gửi thông tin chi tiết nha 💕
 📞 [SĐT/Zalo]
 
-#LamPhuong #HappyOneElite #LiveAboveLiveElite #VanXuanGroup #hoboidaykinh #skypool #songchat #canhocaocap #batdongsan
+#LamPhuong #HappyOneElite #LiveAboveLiveElite #VanXuanGroup #hoboidaykinhphale #skypool #songchat #canhocaocap #batdongsan
 
 *Hình ảnh minh họa, chi tiết hoàn thiện thực tế theo hợp đồng.*
 
 ### Phương án B – Ngắn, mạnh, hợp Instagram
 
 Không giới hạn. Không nhàm chán. Chỉ có trời, nước và Phượng 🌊☁️
-Hồ bơi đáy kính trên cao tại **Happy One Elite**, nơi bơi cũng giống như bay.
+Hồ bơi đáy kính pha lê trên cao tại **Happy One Elite**, nơi bơi cũng giống như bay.
 Live Above, Live Elite ✨ Nhắn Phượng để biết thêm nha!
 
 #LamPhuong #HappyOneElite #LiveAboveLiveElite #hoboidaykinh
@@ -57,7 +57,7 @@ Live Above, Live Elite ✨ Nhắn Phượng để biết thêm nha!
 
 | Thời gian | Hình ảnh | Lời thoại / chữ trên màn hình |
 |---|---|---|
-| 0–3s | Phối cảnh hồ bơi đáy kính nối hai tòa tháp, zoom từ dưới lên | Chữ: **"Bơi mà như bay là có thật!"** |
+| 0–3s | Phối cảnh hồ bơi đáy kính pha lê nối hai tòa tháp, zoom từ dưới lên | Chữ: **"Bơi mà như bay là có thật!"** |
 | 3–8s | Phượng mặc đồ thể thao, tạo dáng tự tin trước sa bàn | "Chào cả nhà, Phượng đây! Hôm nay Phượng khoe cả nhà một hồ bơi… giữa không trung nè!" |
 | 8–18s | Phối cảnh góc nhìn xuyên đáy kính xuống khoảng không giữa hai tháp | "Hồ bơi đáy kính pha lê trên tầng thượng Happy One Elite. Nhìn xuống chân là cả khoảng không, nhìn ra xa là cả thành phố!" |
 | 18–26s | Phối cảnh hồ bơi về đêm, đèn thành phố | "Nước gia nhiệt, điện phân muối khoáng. Tối bơi vẫn ấm, dịu da luôn." |

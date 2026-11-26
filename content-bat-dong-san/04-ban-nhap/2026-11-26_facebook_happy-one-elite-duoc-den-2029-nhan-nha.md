@@ -55,7 +55,7 @@ Bạn nào muốn Phượng tính thử mỗi tháng cần để dành bao nhiê
 | 3–12s | Phượng nói với camera, giọng đồng cảm | "Lương về chưa kịp vui đã phải trả nợ ngân hàng, lãi suất thì lên xuống thất thường. Phượng hiểu, nhiều bạn trẻ vì sợ cảnh này mà không dám mua nhà." |
 | 12–18s | Chuyển cảnh sáng, phối cảnh Happy One Elite | "Nhưng ở **Happy One Elite**, bạn **ĐƯỢC** đến 2029 mới nhận nhà. Phượng nói *được*, chứ không phải *phải* nha!" |
 | 18–30s | Chữ hiện từng dòng | "Thanh toán giãn theo tiến độ. Không áp lực dòng tiền. Có thể không cần vay ngân hàng, khỏi lo lãi suất. Mua nhà bằng chính đồng lương của mình!" |
-| 30–38s | Cắt nhanh: hồ bơi đáy kính, sân thể thao, nội thất bàn giao | "Tới 2029 nhận nhà là nhận cả hồ bơi đáy kính, 39 tiện ích, nội thất cao cấp." |
+| 30–38s | Cắt nhanh: hồ bơi đáy kính pha lê, sân thể thao, nội thất bàn giao | "Tới 2029 nhận nhà là nhận cả hồ bơi đáy kính pha lê, 39 tiện ích, nội thất cao cấp." |
 | 38–45s | Phượng cười, nhìn camera | "Muốn biết mỗi tháng cần để dành bao nhiêu? Bình luận **'TÍNH GIÚP'**, Phượng tính cho liền!" |
 
 ---

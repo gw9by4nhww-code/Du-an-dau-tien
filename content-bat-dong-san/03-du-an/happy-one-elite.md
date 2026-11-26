@@ -57,7 +57,7 @@ Giá bán: **chưa có trong tài liệu**.
 **Tầng thượng (rooftop), "Chạm đỉnh thượng lưu":**
 - **Hồ bơi đáy kính pha lê trên cao**: điểm nhấn số 1. Phần hồ vươn ra như cây cầu nối giữa hai tòa tháp, đáy bằng kính trong suốt nên bơi ngang qua là nhìn thẳng xuống khoảng không bên dưới.
   - Công nghệ **gia nhiệt, điện phân muối khoáng** (nước ấm, dịu da, không dùng clo nặng mùi)
-  - Tài liệu gọi đây là "kỷ lục lần đầu xuất hiện trong khu vực": khu căn hộ có hồ bơi đáy kính trên không
+  - Tài liệu gọi đây là "kỷ lục lần đầu xuất hiện trong khu vực": khu căn hộ có hồ bơi đáy kính pha lê trên không
 - Sân tắm nắng trên cao, hồ thủy lực, tiểu đình giọt nước
 - Hồ bơi trẻ em trên cao và sân chơi nước
 - Khu sauna, phòng thư giãn thượng tầng
@@ -97,7 +97,7 @@ Giá bán: **chưa có trong tài liệu**.
 5. Công nghệ nhà thông minh
 6. Tiết diện ban công kính cong lớn
 7. Nội thất bàn giao cao cấp đến từ châu Âu
-8. Hồ bơi đáy kính trên cao lần đầu xuất hiện
+8. Hồ bơi đáy kính pha lê trên cao lần đầu xuất hiện
 
 ## Góc nhìn bán hàng của chị Phượng
 - **"ĐƯỢC đến 2029 mới nhận nhà, chứ không phải PHẢI chờ."** Thời gian xây dựng dài giúp giãn thanh toán. Khách đỡ áp lực dòng tiền, có thể không cần vay ngân hàng, không lo lãi suất, mua nhà bằng đồng lương.

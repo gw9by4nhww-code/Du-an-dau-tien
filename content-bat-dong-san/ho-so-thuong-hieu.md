@@ -7,7 +7,7 @@
 - Nghề: Chuyên viên bất động sản
 - Hình ảnh: duyên dáng, xinh đẹp, tận tâm, đáng tin cậy
 - Tính cách: sporty, hướng ngoại, thích khám phá và trải nghiệm, không thích sự an toàn nhàm chán, tự tin và thích thể hiện bản thân, tận hưởng thế giới bằng mọi giác quan
-- Sở thích: bơi lội, đặc biệt là hồ bơi trên cao, view rộng không giới hạn
+- Sở thích: bơi lội, đặc biệt là **hồ bơi đáy kính pha lê** trên cao, view rộng không giới hạn
 - Khu vực hoạt động chính: [...]
 - Loại BĐS chuyên: [căn hộ / nhà phố / đất nền / cho thuê ...]
 - Số năm kinh nghiệm: [...]

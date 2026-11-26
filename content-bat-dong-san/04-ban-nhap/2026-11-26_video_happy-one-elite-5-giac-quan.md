@@ -2,7 +2,7 @@
 
 > Viết từ lời tâm sự của chị Phượng. Công thức: Nỗi đau → Giải pháp.
 > Góc kể: Phượng nói trực tiếp với camera, ngôi thứ nhất, tự tin, hướng ngoại, thích thể hiện.
-> Ý tưởng chủ đạo: hồ bơi đáy kính vừa **chữa lành**, vừa **kết nối bạn bè**, vừa **thể hiện đẳng cấp**, và chạm đủ **5 giác quan**.
+> Ý tưởng chủ đạo: hồ bơi đáy kính pha lê vừa **chữa lành**, vừa **kết nối bạn bè**, vừa **thể hiện đẳng cấp**, và chạm đủ **5 giác quan**.
 > Tiện ích đối chiếu với `03-du-an/happy-one-elite.md`.
 
 ---
@@ -22,7 +22,7 @@
 | 37–42s | Phối cảnh vườn treo tầng 12A, thư viện | "Muốn chậm lại, chữa lành, phát triển bản thân? Có vườn treo yên tĩnh để thiền, có thư viện để đọc sách." |
 | 42–48s | Phượng gọi điện, cười | "Buồn hả? *'Alo, qua nhà tao chơi đi! Nhà tao có hồ bơi xịn lắm nè!'*" |
 | **ĐIỂM NHẤN: HỒ BƠI 5 GIÁC QUAN** | | |
-| 48–52s | Phối cảnh hồ bơi đáy kính nối hai tháp | "Và thứ Phượng mê nhất: **hồ bơi đáy kính pha lê trên tầng thượng**. Nó chạm tới mọi giác quan của Phượng." |
+| 48–52s | Phối cảnh hồ bơi đáy kính pha lê nối hai tháp | "Và thứ Phượng mê nhất: **hồ bơi đáy kính pha lê trên tầng thượng**. Nó chạm tới mọi giác quan của Phượng." |
 | 52–55s | Cận cảnh làn nước | 🤲 **Xúc giác**: "Ngâm mình trong nước ấm điện phân muối khoáng, dịu nhẹ cho da." |
 | 55–58s | Toàn cảnh thành phố về đêm | 👀 **Thị giác**: "Ngắm toàn cảnh Sài Gòn, không giới hạn tầm nhìn. Bơi mà như đang bay!" |
 | 58–61s | Không gian yên tĩnh, ánh đèn dịu | 👂 **Thính giác**: "Chìm vào không gian yên tĩnh, sang trọng, tách khỏi ồn ào ngoài kia." |
@@ -50,7 +50,7 @@ Phượng hướng ngoại, mê thể thao, thích thể hiện bản thân. Nh�
 👃 **Ngửi**: vườn thảo mộc thơm mát ngay trên tầng thượng
 👅 **Nếm**: BBQ trên cao cùng bạn bè, nhâm nhi trà ở vườn trà trên không
 
-Với Phượng, hồ bơi này vừa là nơi **chữa lành**, vừa là nơi **kết nối bạn bè**, vừa là một nét **đẳng cấp** riêng. Khu căn hộ có hồ bơi đáy kính trên cao này lần đầu xuất hiện trong khu vực (theo chủ đầu tư) ✨
+Với Phượng, hồ bơi này vừa là nơi **chữa lành**, vừa là nơi **kết nối bạn bè**, vừa là một nét **đẳng cấp** riêng. Khu căn hộ có hồ bơi đáy kính pha lê trên cao này lần đầu xuất hiện trong khu vực (theo chủ đầu tư) ✨
 
 Còn chạy bộ, pickleball, gym, yoga, sauna, thư viện… thì 39 tiện ích luôn sẵn sàng dưới chân nhà 💪
 
@@ -58,7 +58,7 @@ Còn chạy bộ, pickleball, gym, yoga, sauna, thư viện… thì 39 tiện í
 📍 218 Tam Bình, TP.HCM
 📞 [SĐT/Zalo]
 
-#LamPhuong #HappyOneElite #LiveAboveLiveElite #hoboidaykinh #5giacquan #chualanh #sporty #batdongsan
+#LamPhuong #HappyOneElite #LiveAboveLiveElite #hoboidaykinhphale #5giacquan #chualanh #sporty #batdongsan
 
 *Hình ảnh minh họa, chi tiết hoàn thiện thực tế theo hợp đồng.*
 

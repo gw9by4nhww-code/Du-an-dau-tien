@@ -68,7 +68,7 @@ Cả ngày hướng ngoại, vài giờ hướng nội để phát triển và c
 | 24–29s | Phượng skincare, chữ "7:00" | "7 giờ skincare, make up, ăn sáng. 8 giờ đi làm, tươi tỉnh cả ngày." |
 | 29–36s | Phối cảnh sân pickleball, đường chạy bộ | "Chiều về đánh pickleball, chạy bộ. Đổ mồ hôi, tăng nhịp tim, quên hết ồn ào." |
 | 36–44s | Phối cảnh vườn treo 12A, sauna, thư viện, chữ "20:00" | "Tối thiền ở vườn treo, xông sauna, đọc sách. Về với chính mình." |
-| 44–54s | Phượng gọi điện, rồi phối cảnh BBQ trên cao, hồ bơi đáy kính về đêm | "Buồn hả? Alo, qua nhà tao BBQ rồi lên bơi nè! Hồ bơi đáy kính trên tầng thượng, nước ấm muối khoáng, ngắm cả thành phố về đêm." |
+| 44–54s | Phượng gọi điện, rồi phối cảnh BBQ trên cao, hồ bơi đáy kính pha lê về đêm | "Buồn hả? Alo, qua nhà tao BBQ rồi lên bơi nè! Hồ bơi đáy kính pha lê trên tầng thượng, nước ấm muối khoáng, ngắm cả thành phố về đêm." |
 | **KÊU GỌI** | | |
 | 54–60s | Phượng cười, nhìn camera | "Cả ngày hướng ngoại, vài giờ hướng nội. Happy One Elite, Live Above, Live Elite! Bình luận **'CHỮA LÀNH'**, Phượng gửi thông tin nha!" |
 
@@ -76,6 +76,6 @@ Cả ngày hướng ngoại, vài giờ hướng nội để phát triển và c
 
 ---
 **Checklist**
-- [x] Tiện ích khớp tài liệu dự án (gym tầng 2, pickleball, chạy bộ, vườn treo 12A, sauna, hồ thủy lực, thư viện, vườn trà, BBQ trên cao, hồ bơi đáy kính)
+- [x] Tiện ích khớp tài liệu dự án (gym tầng 2, pickleball, chạy bộ, vườn treo 12A, sauna, hồ thủy lực, thư viện, vườn trà, BBQ trên cao, hồ bơi đáy kính pha lê)
 - [x] PT là dịch vụ cá nhân, không phải tiện ích của dự án
 - [ ] Điền SĐT/Zalo
