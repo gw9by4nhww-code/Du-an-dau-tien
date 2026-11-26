@@ -1,72 +1,88 @@
 # Review hồ bơi đáy kính trên cao – Happy One Elite
 
-> Bản nháp từ lời kể của chị Phượng. Hồ sơ dự án: `03-du-an/happy-one-elite.md`.
-> Còn thiếu: tầng của hồ bơi, địa chỉ chính xác (chị xác nhận), loại căn và giá, SĐT.
-> Tinh thần: sporty, hướng ngoại, thích khám phá, tự tin khoe cá tính – "bay giữa không trung không giới hạn".
+> Viết từ cảm nhận của chị Phượng, đối chiếu với tài liệu đào tạo dự án 20.11.2026. Hồ sơ dự án: `03-du-an/happy-one-elite.md`.
+> Tinh thần: sporty, hướng ngoại, thích khám phá, tự tin khoe cá tính, "bay giữa không trung không giới hạn".
+> Còn thiếu: SĐT/Zalo, giá (nếu muốn ghi).
 
 ---
 
 ## 1. Bài Facebook / Instagram
 
-### Phương án A – Cảm xúc, kể chuyện
+### Phương án A – Cảm xúc, kể chuyện (bài chính)
 
-Có những nơi mình chỉ cần bước xuống nước là biết: "Đây rồi, chỗ của mình!" 💦
+Có những nơi mình chỉ cần nhìn thấy là biết: "Đây rồi, chỗ của mình!" 💦
 
-Phượng vốn là đứa mê khám phá, thích vận động, không chịu ngồi yên một chỗ. Và hồ bơi trên cao ở Happy One Elite thật sự làm Phượng "đổ" ngay từ lần đầu 😍
+Phượng vốn là đứa mê khám phá, thích vận động, ghét sự nhàm chán. Mà hồ bơi trên tầng thượng **Happy One Elite** thì làm Phượng "đổ" ngay từ cái nhìn đầu tiên 😍
 
-✨ Hồ bơi đáy kính trên cao, bơi mà như đang bay giữa không trung
-✨ Nhìn xuyên qua đáy kính, dưới chân là cả dòng xe cộ đang chạy, thành phố như thu nhỏ lại
-✨ Tầm mắt không bị chắn bởi bất cứ thứ gì, trời rộng bao nhiêu thì view rộng bấy nhiêu
+✨ **Hồ bơi đáy kính pha lê** vươn ra giữa hai tòa tháp. Bơi ngang qua là thấy mình như đang bay giữa không trung.
+✨ Nhìn xuyên qua đáy kính là cả khoảng không bên dưới. Phóng tầm mắt ra xa là dòng xe cộ, là cả thành phố thu nhỏ dưới chân.
+✨ Không vách chắn, không giới hạn tầm nhìn. Trời rộng bao nhiêu, view rộng bấy nhiêu.
+✨ Nước được **gia nhiệt và điện phân muối khoáng**, ấm và dịu da. Bơi buổi tối hay ngày mưa vẫn sướng 🥰
 
-Với người thích trải nghiệm, thích cảm giác mới, thích tận hưởng cuộc sống bằng mọi giác quan như Phượng, thì đây không chỉ là hồ bơi. Đây là cảm giác tự do 🕊️
+Với người thích trải nghiệm, không thích "an toàn nhàm chán", muốn tận hưởng thế giới bằng mọi giác quan như Phượng, thì đây không chỉ là một hồ bơi. Đây là cảm giác **tự do** 🕊️
 
-Sáng bơi đón bình minh, chiều ngắm hoàng hôn, tối nhìn thành phố lên đèn… mà chỉ cách nhà mình vài bước thang máy.
+Mà chưa hết đâu nha, dân sporty vào đây là mê luôn:
+🏃‍♀️ Đường chạy bộ Elite
+🏸 Sân cầu lông và pickleball
+🧘‍♀️ Sân yoga đón nắng trên cao, vườn yoga hoàng hôn
+💪 Phòng gym, sân thể thao trên cao ngoài trời
+🧖‍♀️ Sauna thượng tầng để thư giãn sau buổi tập
 
-📍 Happy One Elite – [địa chỉ, chờ chị xác nhận]
-🏡 Căn [loại căn] từ [giá]
+Sáng chạy bộ, trưa tắm nắng, chiều bơi ngắm hoàng hôn, tối xông hơi… tất cả chỉ cách nhà mình vài bước thang máy. **Live Above, Live Elite** đúng nghĩa luôn đó cả nhà!
 
-Ai cũng "sporty", mê sống chất như Phượng thì nhắn ngay để Phượng dẫn đi bơi thử nha 💕
+📍 Happy One Elite – 218 Tam Bình, TP.HCM (cửa ngõ kết nối Bình Dương)
+🏆 Thiết kế kiến trúc căn hộ tốt nhất TP.HCM – PropertyGuru Vietnam Property Awards 2026
+🏡 Căn hộ 1PN đến 2PN+, officetel, shophouse. Bàn giao quý 3–4/2029.
+
+Ai cũng mê sống chất, sống năng động như Phượng thì nhắn ngay để Phượng gửi thông tin chi tiết nha 💕
 📞 [SĐT/Zalo]
 
-#LamPhuong #hoboitrencao #hoboidaykinh #skypool #canhocaocap #songchat #batdongsan #HappyOneElite #VanXuanGroup
+#LamPhuong #HappyOneElite #LiveAboveLiveElite #VanXuanGroup #hoboidaykinh #skypool #songchat #canhocaocap #batdongsan
+
+*Hình ảnh minh họa, chi tiết hoàn thiện thực tế theo hợp đồng.*
 
 ### Phương án B – Ngắn, mạnh, hợp Instagram
 
-Không giới hạn. Không an toàn. Chỉ có trời, nước và Phượng 🌊☁️
-Hồ bơi đáy kính trên cao tại Happy One Elite, nơi bơi cũng giống như bay.
-Nhắn Phượng để trải nghiệm tận nơi nha ✨
+Không giới hạn. Không nhàm chán. Chỉ có trời, nước và Phượng 🌊☁️
+Hồ bơi đáy kính trên cao tại **Happy One Elite**, nơi bơi cũng giống như bay.
+Live Above, Live Elite ✨ Nhắn Phượng để biết thêm nha!
+
+#LamPhuong #HappyOneElite #LiveAboveLiveElite #hoboidaykinh
 
 ---
 
-## 2. Kịch bản video ngắn (TikTok / Reels, ~40 giây)
+## 2. Kịch bản video ngắn (TikTok / Reels, ~45 giây)
+
+> Dự án đang xây (bàn giao 2029), nên video dùng **phối cảnh 3D của chủ đầu tư** ghép với cảnh Phượng quay thật (ở nhà mẫu, sa bàn hoặc hồ bơi tương tự), và ghi rõ "hình ảnh minh họa".
 
 | Thời gian | Hình ảnh | Lời thoại / chữ trên màn hình |
 |---|---|---|
-| 0–3s | Phượng đứng sát mép hồ, quay lưng về camera, phía sau là trời và thành phố | Chữ: **"Bơi mà như bay là có thật!"** |
-| 3–8s | Phượng nhảy xuống nước, slow-motion | "Chào cả nhà, Phượng đây! Hôm nay Phượng dẫn mọi người đi bơi… trên không trung nè!" |
-| 8–18s | Quay xuyên qua đáy kính chĩa xuống đường, xe cộ chạy bên dưới chân Phượng | "Hồ bơi đáy kính nè cả nhà! Nhìn xuống chân là cả dòng xe luôn. Không có gì chắn tầm nhìn hết!" |
-| 18–28s | Phượng bơi ra mép hồ, flycam/góc rộng thấy trời mênh mông | "Ai mê khám phá, thích cảm giác mới như Phượng chắc chắn sẽ mê chỗ này." |
-| 28–35s | Hoàng hôn hoặc thành phố lên đèn | "Sáng đón bình minh, tối ngắm thành phố, chỉ cách nhà vài bước thang máy." |
-| 35–40s | Phượng tựa mép hồ, nhìn thẳng camera, cười | "Muốn bơi thử thì bình luận **'BƠI'**, Phượng dẫn đi liền!" |
+| 0–3s | Phối cảnh hồ bơi đáy kính nối hai tòa tháp, zoom từ dưới lên | Chữ: **"Bơi mà như bay là có thật!"** |
+| 3–8s | Phượng mặc đồ thể thao, tạo dáng tự tin trước sa bàn | "Chào cả nhà, Phượng đây! Hôm nay Phượng khoe cả nhà một hồ bơi… giữa không trung nè!" |
+| 8–18s | Phối cảnh góc nhìn xuyên đáy kính xuống khoảng không giữa hai tháp | "Hồ bơi đáy kính pha lê trên tầng thượng Happy One Elite. Nhìn xuống chân là cả khoảng không, nhìn ra xa là cả thành phố!" |
+| 18–26s | Phối cảnh hồ bơi về đêm, đèn thành phố | "Nước gia nhiệt, điện phân muối khoáng. Tối bơi vẫn ấm, dịu da luôn." |
+| 26–36s | Cắt nhanh: đường chạy bộ, sân pickleball, yoga trên cao, gym | "Dân sporty như Phượng thì mê luôn: chạy bộ, pickleball, yoga, gym, sauna… đủ hết!" |
+| 36–45s | Phượng nhìn thẳng camera, cười | "Live Above, Live Elite! Bình luận **'BƠI'**, Phượng gửi thông tin liền!" |
 
 **Ghi chú quay**
-- Quay dọc 9:16. Giờ đẹp: 6h–7h sáng hoặc 17h–18h chiều.
-- Đồ bơi màu nổi (đỏ, cam, trắng) để tách khỏi nền trời và nước.
-- Có cảnh slow-motion lúc nhảy xuống và cảnh quay xuyên đáy kính xuống đường (cảnh "ăn tiền" nhất).
-- Nhạc sôi động, bắt trend.
-- An toàn: quay ở khu vực ban quản lý cho phép, có người hỗ trợ khi quay gần mép hồ.
+- Quay dọc 9:16, ánh sáng tự nhiên (6h–7h sáng hoặc 17h–18h chiều)
+- Trang phục: đồ thể thao hoặc đồ bơi phối khoác ngoài, màu nổi (đỏ, cam, trắng)
+- Nhạc sôi động, bắt trend; phụ đề đầy đủ
+- Góc màn hình ghi "Hình ảnh minh họa"
 
 ---
 
 ## 3. Caption ngắn dự phòng
-- "Bầu trời là giới hạn? Không, ở đây bầu trời là hồ bơi của Phượng ☁️💦"
-- "Người ta bơi trong hồ. Phượng bơi giữa thành phố."
-- "Sống một lần thì phải sống thật chất ✨"
+- "Bầu trời là giới hạn? Không, ở Happy One Elite bầu trời là hồ bơi của Phượng ☁️💦"
+- "Người ta bơi trong hồ. Phượng bơi giữa không trung."
+- "Live Above, Live Elite. Sống một lần thì phải sống thật chất ✨"
+- "Đáy kính dưới chân, thành phố trong tầm mắt 🌆"
 
 ---
 **Checklist trước khi đăng**
-- [ ] Xác nhận địa chỉ chính xác (Bình Dương hay 218 Tam Bình, TP.HCM)
-- [ ] Điền loại căn, giá, SĐT
-- [ ] Xác nhận hồ bơi đáy kính ở tầng mấy
-- [ ] Kiểm tra hồ bơi dành cho cư dân hay có thu phí
-- [ ] Xin phép ban quản lý trước khi quay
+- [x] Tên dự án viết đầy đủ "Happy One Elite"
+- [x] Vị trí ghi đúng TP.HCM (không ghi "ở Bình Dương")
+- [x] Có dòng "Hình ảnh minh họa"
+- [ ] Điền SĐT/Zalo
+- [ ] Xác nhận hồ bơi dành riêng cư dân hay có thu phí (nếu khách hỏi)
+- [ ] Không ghi giá khi chưa có bảng giá chính thức
