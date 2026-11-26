@@ -72,9 +72,15 @@
 
 **8. Nỗi lo tài chính → tiến độ thanh toán**
 
-*"Và điều cuối cùng, cũng là điều Phượng trân trọng nhất. Chủ đầu tư hiểu người trẻ ái ngại lãi suất, áp lực dòng tiền, và luôn mơ ước được mua nhà bằng chính đồng lương của mình."*
+*"Và cuối cùng, điều mà Phượng **trân trọng và tâm đắc nhất**…"*
 
-*"Vì vậy, tiến độ thanh toán được thiết kế vô cùng linh hoạt. Mình **được** đến 2029 mới nhận nhà, có khoảng thời gian chỉ cần thanh toán **6 triệu mỗi tháng**. Và nếu tài chính vững vàng, mình có thể thanh toán nhanh với chiết khấu lên đến **17%**."*
+*"Vì hiểu người trẻ ái ngại lãi suất, áp lực dòng tiền khi thanh toán, và luôn ước mơ được **mua nhà bằng chính đồng lương của mình**…"*
+
+*"…nên tiến độ thanh toán **vô cùng linh hoạt**, kéo giãn đến tận **2029**. Có khoảng thời gian, mình **chỉ cần thanh toán 6 triệu mỗi tháng** thôi!"*
+
+*"Còn nếu tài chính vững vàng, bạn có thể chọn thanh toán nhanh, với chiết khấu… **lên đến 17%**!"* 😊
+
+> 🎙️ Gợi ý đọc: chậm và ấm ở câu "trân trọng và tâm đắc nhất"; nhấn mạnh, tươi tắn ở "chỉ cần 6 triệu mỗi tháng"; ngừng một nhịp trước "lên đến 17%" rồi nói thật rõ, thật vui.
 
 ### 🔍 SO SÁNH KHU VỰC
 
