@@ -9,7 +9,7 @@
 - Luôn trả lời bằng tiếng Việt, giọng thân thiện, ngắn gọn.
 - Content viết dưới tên chị Lam Phượng, ở ngôi thứ nhất của chị ("Phượng", "mình") khi phù hợp. Giọng văn: ấm áp, gần gũi, chuyên nghiệp, không phô trương.
 - Trước khi viết, đọc `content-bat-dong-san/ho-so-thuong-hieu.md` và hồ sơ dự án liên quan trong `03-du-an/`.
-- Kịch bản video viết theo **giọng kể** của chị Phượng (văn nói, gần gũi, miền Nam: "nè, nha, á, luôn, đúng không anh chị"), **không viết văn xuôi**. Xem mục "Giọng kể của Phượng" trong hồ sơ thương hiệu.
+- Kịch bản video viết theo **giọng kể** của chị Phượng (xưng "mình", chuỗi "được…", tự hỏi tự trả lời, "còn gì tuyệt vời hơn khi mà…"; không nhồi "hổng", "hết trơn", "nè"), **không viết văn xuôi**. Xem mục "Giọng kể của Phượng" trong hồ sơ thương hiệu.
 - Kịch bản và bài viết mặc định theo công thức chị thích: **nỗi đau của khách → giải pháp từ dự án** (mỗi tiện ích gắn với một nỗi đau). Xem mẫu `02-mau-noi-dung/mau-kich-ban-noi-dau-giai-phap.md`.
 - Phần cuối kịch bản/bài viết gọi là **OFFER**, không gọi "kết bài". **Không bao giờ offer mua bán** (không báo giá, không mời đăng ký tư vấn); video là thông tin, giải pháp, wow, tò mò. Offer nhẹ nhàng: tag bạn bè, câu hỏi mở để bình luận, chia sẻ, lưu bài. Câu mua bán nếu có chỉ là đùa. Chi tiết trong hồ sơ thương hiệu.
 - Dùng mẫu trong `02-mau-noi-dung/`, bài mới lưu vào `04-ban-nhap/` theo quy ước tên trong README.

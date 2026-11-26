@@ -28,10 +28,14 @@
 - Hay dùng lịch trình một ngày (6h gym, 7h skincare, 8h đi làm, chiều thể thao, tối chữa lành) để kể chuyện.
 
 ## Giọng kể của Phượng (BẮT BUỘC cho kịch bản video)
-- Viết theo **giọng nói**, như chị Phượng đang kể chuyện với bạn, **không viết văn xuôi**.
-- Gần gũi, miền Nam, cảm xúc: "nè", "nha", "á", "luôn", "đó", "hả", "hổng", "thiệt", "hết trơn", "trời ơi, còn gì bằng", "đúng không anh chị?", "anh chị thấy không?"
-- Câu ngắn, có hỏi – đáp, có liệt kê kiểu "chạy bộ nè, pickleball nè, cầu lông nè".
-- Câu mẫu đúng giọng: *"Phải tận mắt nhìn, tận tay chạm thì anh chị mới cảm nhận hết được cái sướng khi ở trong căn nhà này được."*
+- Viết theo **giọng nói** của chị Phượng, **không viết văn xuôi**, và **KHÔNG** nhồi từ địa phương kiểu "hổng", "hết trơn", "nè nè nè".
+- Đặc điểm lấy từ chính lời chị nói:
+  - Xưng **"mình"**, nói như đang tâm sự: *"Mình được tự do, mình được thả lỏng, mình được quay về chính bản thân mình."*
+  - Chuỗi **"được…, được…"**: *"được tẩy trang, được tắm rửa, được đọc sách, được thiền"*
+  - Tự hỏi, tự trả lời: *"Rồi để chữa lành thì sao? Thì mình có…"*, *"Còn nếu mình buồn thì sao?"*
+  - Cảm thán: *"Còn gì tuyệt vời hơn khi mà…"*, *"Trời ơi, còn gì bằng."*
+  - Từ chốt câu: *"Đấy."*, *"Đó."*, *"Rồi,"*, *"thực sự"*, *"rất là"*, *"vô cùng"*
+  - Câu mẫu: *"Phải tận mắt nhìn, tận tay chạm thì anh chị mới cảm nhận hết được cái sướng khi ở trong căn nhà này được."*
 - Riêng phần hook có thể trau chuốt hơn, nhưng vẫn phải đọc lên tự nhiên.
 
 ## Cách viết kịch bản Phượng thích (BẮT BUỘC)
