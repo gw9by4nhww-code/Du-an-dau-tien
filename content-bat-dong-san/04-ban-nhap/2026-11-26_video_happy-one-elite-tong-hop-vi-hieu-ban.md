@@ -54,7 +54,7 @@
 
 **4. Di chuyển → vị trí**
 
-*"Về di chuyển, chỉ 3 phút đến Depot Metro, 10 phút đến Gigamall, 15 phút đến sân bay Tân Sơn Nhất cho những chuyến công tác, 17 phút đến Landmark 81, và [...] phút vào trung tâm Quận 1."* ⚠️ *chờ xác nhận số phút*
+*"Về di chuyển, chỉ 3 phút đến Depot Metro, 10 phút đến Gigamall, 15 phút đến sân bay Tân Sơn Nhất cho những chuyến công tác, và 17 phút đến Landmark 81."*
 
 **5. Sức khỏe, nhạy bén → thể thao**
 
@@ -136,7 +136,6 @@ Có một dự án làm ra như thể hiểu người trẻ đến từng chi ti
 - [ ] Hỏi dự án đã có nhà mẫu chưa, ở đâu, để quay cảnh bàn giao thật
 - [x] Offer đơn giản: câu hỏi và tag bạn
 - [x] Không ghi "sân bay kế bên", "khu trung tâm"
-- [ ] Điền số phút đến Bến Thành / trung tâm Quận 1
 - [ ] Xác nhận chính sách thanh toán (6 triệu/tháng, chiết khấu 17%) và được phép công bố chưa
 - [ ] Xác minh các dự án lân cận trước khi dùng bản nêu tên
 - [ ] Xác nhận thông tin phòng gym (thiết bị, bàn giao) nếu muốn ghi "cao cấp"
