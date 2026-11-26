@@ -14,19 +14,15 @@
 
 *"8 tiếng cười nói, cùng những đêm chạy deadline… chỉ còn vài giờ để dành cho bản thân.*
 
-*Bạn khao khát sức khỏe, khao khát được học tập, nâng cấp bản thân.*
+*Bạn khao khát sức khỏe, học tập, nâng cấp bản thân. Bạn muốn được chữa lành, được yêu thương bản thân nhiều hơn. Bạn thật sự muốn tự do.*
 
-*Bạn muốn được chữa lành, được yêu thương bản thân nhiều hơn.*
+*Và tự do ấy có tại **Happy One Elite**, với **hồ bơi đáy kính pha lê**. Tầm nhìn không giới hạn. Trọn vẹn 5 giác quan, được thả lỏng, được tự do.*
 
-*Bạn thật sự muốn tự do.*
+*Cùng **39 tiện ích được chắt lọc**, hỗ trợ bạn xây dựng sức khỏe, tinh thần, và nâng tầm trải nghiệm sống mỗi ngày."*
 
-*Và tự do ấy sẽ đến mỗi ngày, với **hồ bơi đáy kính pha lê**. Tầm nhìn không giới hạn. Trọn vẹn 5 giác quan, được thả lỏng, được tự do.*
+### 👋 VÀO DỰ ÁN
 
-*Cùng **39 tiện ích được chắt lọc**, sẽ hỗ trợ bạn xây dựng sức khỏe, tinh thần. Và nâng tầm trải nghiệm sống mỗi ngày."*
-
-### 👋 GIỚI THIỆU
-
-*"Xin chào anh chị, Lam Phượng đây. Hôm nay Phượng chia sẻ một dự án mà Phượng thực sự tâm đắc: **Happy One Elite**. Vì càng tìm hiểu, Phượng càng thấy chủ đầu tư thực sự hiểu người trẻ chúng ta."*
+*"Xin chào anh chị, Lam Phượng đây. Và đây là 8 điều cho thấy chủ đầu tư thực sự hiểu người trẻ chúng ta."*
 
 ### 💎 VÌ HIỂU BẠN
 
