@@ -2,7 +2,7 @@
 ### Happy One Elite × Lam Phượng
 
 > Cấu trúc chị Phượng đưa: **"Vì hiểu [nhu cầu / nỗi đau] → nên chủ đầu tư đã [giải pháp]"**, gồm 8 điều.
-> Thời lượng: ~3 phút 15 giây.
+> Thời lượng: ~830 âm tiết, đọc khoảng **5 – 5 phút 30 giây** (tính cả nhịp ngừng).
 > **Giọng kể**: lịch sự, chân thành, gần gũi, gọn gàng, sang trọng.
 > Số liệu theo `03-du-an/happy-one-elite.md` và `03-du-an/so-sanh-du-an-khu-vuc.md`.
 > ⚠️ Còn chờ xác nhận:
@@ -14,7 +14,7 @@
 
 ## LỜI THOẠI
 
-### 🎬 HOOK (0:00 – 0:20)
+### 🎬 HOOK (~30 giây)
 
 *"8 tiếng cười nói, cùng những đêm chạy deadline… chỉ còn vài giờ để dành cho bản thân.*
 
