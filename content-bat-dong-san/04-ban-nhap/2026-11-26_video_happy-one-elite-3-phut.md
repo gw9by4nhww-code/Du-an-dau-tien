@@ -1,7 +1,7 @@
-# KỊCH BẢN RÚT GỌN (~3 PHÚT) – "Vì hiểu bạn"
+# KỊCH BẢN RÚT GỌN (~3 PHÚT 30) – "Vì hiểu bạn"
 ### Happy One Elite × Lam Phượng
 
-> Bản rút gọn từ `2026-11-26_video_happy-one-elite-tong-hop-vi-hieu-ban.md` (bản dài ~5 phút 30).
+> Bản rút gọn từ `2026-11-26_video_happy-one-elite-tong-hop-vi-hieu-ban.md` (bản dài ~5 phút 30). Bản này ~580 âm tiết, đọc khoảng 3 phút – 3 phút 30.
 > Nguyên tắc: cắt chữ, giữ đủ 8 ý và các nhịp cảm xúc. Hook giữ nguyên bản chị Phượng đã duyệt.
 > Giọng kể: lịch sự, chân thành, gần gũi, gọn gàng, sang trọng, vui vẻ, duyên dáng.
 > ⚠️ Chờ xác nhận chính sách chính thức: 6 triệu/tháng, chiết khấu 17%. Xác minh thông tin dự án lân cận trước khi đăng.
