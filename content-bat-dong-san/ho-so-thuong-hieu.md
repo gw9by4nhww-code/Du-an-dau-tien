@@ -43,7 +43,7 @@ Công thức **Nỗi đau → Giải pháp** (mẫu: `02-mau-noi-dung/mau-kich-b
 
 ## Câu chào / câu ký tên quen thuộc
 - Mở bài: [Ví dụ: "Chào cả nhà, Phượng đây ạ!"]
-- Offer: [Ví dụ: "Cần tư vấn cứ nhắn Phượng nha 💕"]
+- Offer: [Ví dụ: "Tag đứa bạn đang bị deadline bào mòn nha 💕"]
 
 ## Liên hệ (ghi vào cuối bài)
 - SĐT / Zalo: [...]
