@@ -40,11 +40,27 @@
 - **Giá:** chưa có bảng giá chính thức. Nếu cao hơn mặt bằng khu vực thì phải giải thích bằng tiện ích, thiết kế và nội thất bàn giao, không hứa tăng giá.
 - **Mật độ dân:** khoảng 1.200 cư dân, mật độ xây dựng 39,87%.
 
+## Cập nhật 26/11/2026 (từ báo, trang tổng hợp, chưa xác minh với chủ đầu tư)
+- **Urban Green** (Kusto Home, đường số 6, Hiệp Bình Phước):
+  - Bàn giao từ tháng 4/2025, đang hoàn thiện sổ hồng (Báo Đầu Tư)
+  - Hơn 60 tiện ích, hồ bơi kiểu resort, vườn BBQ
+  - Có căn 3PN (102–121 m²) và 4PN (~140 m²)
+  - **Phù hợp:** gia đình đông thành viên, cần ở sớm, cần căn lớn
+- **Fresca Riverside** (Bình Chiểu):
+  - Chủ đầu tư được ghi là Seaholdings
+  - Đã bàn giao, căn khoảng 50–70 m², giá thứ cấp 2PN khoảng 2,3–2,9 tỷ (tin rao)
+  - **Phù hợp:** người cần ở ngay, căn nhỏ gọn
+- **Gem Premium:** không tìm được thông tin đáng tin, **không dùng trong video**
+- **Happy One Elite**, **phù hợp:** người trẻ năng động, cần không gian chữa lành, thể thao tại nhà, muốn giãn thanh toán đến 2029
+
 ## Cần kiểm chứng thêm
 - Giá, tiện ích, tiến độ chính xác của Urban Green, Gem Premium, Opal Premium
 - Các dự án khác trong khu vực mà chị Phượng biết
 
 ## Nguồn
+- https://baodautu.vn/batdongsan/kusto-home-hoan-tat-phap-ly-cho-khu-can-ho-urban-green-sau-chua-day-1-nam-ban-giao-d580791.html
+- https://znews.vn/kien-tao-trai-nghiem-song-vui-moi-ngay-tai-urban-green-post1306619.html
+- https://www.sggp.org.vn/cat-noc-du-an-fresca-riverside-post526004.html
 - Tài liệu đào tạo Happy One Elite 20.11.2026
 - https://batdongsan.com.vn/du-an-can-ho-chung-cu-thu-duc
 - https://cafeland.vn/du-an/can-ho-chung-cu-tai-hiep-binh-tp-ho-chi-minh/
