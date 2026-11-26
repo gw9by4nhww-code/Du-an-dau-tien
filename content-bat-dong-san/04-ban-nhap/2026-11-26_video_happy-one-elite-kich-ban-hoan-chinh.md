@@ -22,7 +22,7 @@
 
 *Và tự do ấy sẽ đến mỗi ngày, với **hồ bơi đáy kính pha lê**. Tầm nhìn không giới hạn. Trọn vẹn 5 giác quan, được thả lỏng, được tự do.*
 
-*Cùng **39 tiện ích được chắt lọc**, giúp bạn xây dựng sức khỏe, tinh thần, và nâng tầm trải nghiệm sống mỗi ngày."*
+*Cùng **39 tiện ích được chắt lọc**, sẽ hỗ trợ bạn xây dựng sức khỏe, tinh thần. Và nâng tầm trải nghiệm sống mỗi ngày."*
 
 ### 👋 GIỚI THIỆU (0:20 – 0:30)
 
