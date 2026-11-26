@@ -89,7 +89,7 @@
 
 **Bản nêu tên** (⚠️ chỉ dùng khi đã xác minh thông tin các dự án):
 
-*"…Fresca Riverside đã bàn giao, phù hợp với anh chị cần ở ngay. Urban Green và Gem Premium ở khu Hiệp Bình, phù hợp với anh chị đã quen khu vực đó…"* (phần sau giữ như bản không nêu tên)
+*"…Fresca Riverside đã bàn giao, phù hợp với anh chị cần ở ngay. Urban Green đã bàn giao, nhiều căn lớn, phù hợp với gia đình đông thành viên…"* (phần sau giữ như bản không nêu tên)
 
 ### 🎁 OFFER
 
