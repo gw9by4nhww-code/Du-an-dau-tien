@@ -62,14 +62,14 @@
 
 ## 🔍 So sánh khu vực
 
-*Quanh đây, mỗi dự án đều có điểm mạnh riêng, hợp với những nhu cầu khác nhau.*
+> ⏳ **Phần so sánh các dự án lân cận: chờ chị Phượng thống kê rồi An viết lại.**
 
-- ***Fresca Riverside** đã bàn giao, căn hộ nhỏ gọn, hợp với anh chị cần dọn vào ở ngay.*
-- ***Urban Green** ở Hiệp Bình Phước đã bàn giao, nhiều căn diện tích lớn, hợp với gia đình đông thành viên.*
+🎙️ **Phượng nói:**
+*Còn **Happy One Elite**: pháp lý rõ ràng, vừa nhận giải kiến trúc căn hộ tốt nhất TP.HCM năm 2026, và được bảo chứng chất lượng bởi [...].*
 
-*Còn **Happy One Elite**: **hồ bơi đáy kính pha lê**, 39 tiện ích với đường chạy bộ, sân pickleball, phòng gym, vườn thiền, sauna. Pháp lý rõ ràng, đã có quy hoạch 1/500 và giấy chứng nhận quyền sử dụng đất. Vừa nhận giải thiết kế kiến trúc căn hộ tốt nhất TP.HCM 2026 của PropertyGuru.*
+*Nếu bạn là người trẻ cần không gian chữa lành, di chuyển thuận lợi, tiến độ thanh toán nhẹ nhàng, thì **Happy One Elite** là lựa chọn tối ưu nhất.*
 
-*Nếu bạn là người trẻ cần không gian chữa lành, thể thao ngay tại nhà, di chuyển thuận lợi và tiến độ thanh toán nhẹ nhàng, thì **Happy One Elite** là lựa chọn tối ưu nhất.*
+> Gợi ý cho chỗ [...] (theo tài liệu dự án): *"ngân hàng MB bảo lãnh dự án"*, hoặc *"đơn vị thiết kế ONG&ONG Singapore và đơn vị vận hành Savills"*.
 
 ## 4. Vì hiểu nỗi lo tài chính của bạn
 
