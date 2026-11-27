@@ -47,7 +47,18 @@
 
 ## 3. Vì hiểu bạn luôn di chuyển
 
-*3 phút tới Depot Metro, 10 phút đến Gigamall, 15 phút tới sân bay Tân Sơn Nhất cho những chuyến công tác, 17 phút tới Landmark 81. Nhanh chóng kết nối với các tuyến đường chính.*
+📺 **Chữ:** **VÌ HIỂU BẠN LUÔN DI CHUYỂN**
+
+🎙️ **Phượng nói:**
+*Kết nối nhanh với Tô Ngọc Vân, Phạm Văn Đồng, Quốc lộ 1A, hưởng lợi trực tiếp từ Vành đai 2. 3 phút đến Depot Metro, 15 phút ra sân bay Tân Sơn Nhất cho những chuyến công tác, 17 phút tới Landmark 81. Chỉ 10 đến 15 phút đến khu làm việc Linh Trung, Sóng Thần. Xung quanh là trường học, bệnh viện và trung tâm thương mại lớn.*
+
+📺 **Đồ họa bản đồ** (hiện lần lượt theo lời nói):
+- Tuyến đường: **Tô Ngọc Vân · Phạm Văn Đồng · QL1A · Vành đai 2**
+- **3' Depot Metro · 15' Tân Sơn Nhất · 17' Landmark 81**
+- **10–15' Linh Trung · Sóng Thần**
+- Icon trường học, bệnh viện, trung tâm thương mại quanh dự án
+
+> ⚠️ Mốc "10–15 phút đến Linh Trung, Sóng Thần" do chị Phượng cung cấp, chưa có trong tài liệu dự án. Các mốc còn lại theo tài liệu.
 
 ## 🔍 So sánh khu vực
 
