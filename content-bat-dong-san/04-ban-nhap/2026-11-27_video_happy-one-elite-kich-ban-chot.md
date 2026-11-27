@@ -65,11 +65,9 @@
 > ⏳ **Phần so sánh các dự án lân cận: chờ chị Phượng thống kê rồi An viết lại.**
 
 🎙️ **Phượng nói:**
-*Còn **Happy One Elite**: pháp lý rõ ràng, vừa nhận giải kiến trúc căn hộ tốt nhất TP.HCM năm 2026, và được bảo chứng chất lượng bởi [...].*
+*Còn **Happy One Elite**: pháp lý rõ ràng, vừa nhận giải kiến trúc căn hộ tốt nhất TP.HCM năm 2026, và được bảo chứng chất lượng bởi ngân hàng MB bảo lãnh dự án, cùng đơn vị thiết kế ONG&ONG Singapore và đơn vị vận hành Savills.*
 
 *Nếu bạn là người trẻ cần không gian chữa lành, di chuyển thuận lợi, tiến độ thanh toán nhẹ nhàng, thì **Happy One Elite** là lựa chọn tối ưu nhất.*
-
-> Gợi ý cho chỗ [...] (theo tài liệu dự án): *"ngân hàng MB bảo lãnh dự án"*, hoặc *"đơn vị thiết kế ONG&ONG Singapore và đơn vị vận hành Savills"*.
 
 ## 4. Vì hiểu nỗi lo tài chính của bạn
 
