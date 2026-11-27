@@ -71,9 +71,9 @@
 
 ## 🎁 OFFER
 
-*Tag người bạn đang bị deadline bào mòn vào đây. Trong 4 điều "vì hiểu bạn", điều nào anh chị thấy cần thiết nhất? Chia sẻ cùng Phượng nhé!*
-
-*Happy One Elite: Live Above, Live Elite. Lam Phượng đây, hẹn gặp lại cả nhà!*
+*Trong 4 điều "vì hiểu bạn", điều nào khiến bạn thích nhất? Chia sẻ cùng Phượng nhé.*
+*Và đừng quên tag ngay người bạn đang bị deadline bào mòn, cùng về làm hàng xóm sớm nhé!*
+***Happy One Elite – Live Above, Live Elite.***
 
 ---
 
