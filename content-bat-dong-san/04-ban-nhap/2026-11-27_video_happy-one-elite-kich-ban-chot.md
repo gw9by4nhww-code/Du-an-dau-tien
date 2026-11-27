@@ -15,19 +15,18 @@
 
 ## 1. Vì hiểu bạn cần thư giãn
 
-📺 **Chữ trên màn hình:** **VÌ HIỂU BẠN CẦN THƯ GIÃN**
+📺 **Chữ:** **VÌ HIỂU BẠN CẦN THƯ GIÃN**
 
 🎙️ **Phượng vừa đi vừa nói:**
 *Vì hiểu bạn cần một nơi để thả lỏng, nên chủ đầu tư đã làm một **hồ bơi đáy kính pha lê** trên tận tầng thượng, vắt ngang giữa 2 tòa tháp, chạm đến 5 giác quan.*
 
-📺 **Chữ trên màn hình** (hiện lần lượt cùng cảnh hồ bơi, Phượng không đọc):
-- 🤲 Xúc giác: nước ấm, điện phân muối khoáng, dịu nhẹ cho da
-- 👀 Thị giác: ngắm trọn Sài Gòn lên đèn, tầm nhìn không giới hạn
-- 👂 Thính giác: không gian yên tĩnh, tách khỏi ồn ào
-- 👃 Khứu giác: hương thơm từ vườn thảo mộc
-- 👅 Vị giác: BBQ trên cao, trà ở vườn trà trên không
-
-🎬 **Hình ảnh:** Phượng đi dọc thành hồ (hoặc trước sa bàn / màn hình phối cảnh), xen cảnh hồ bơi đáy kính pha lê từ nhiều góc: xuyên đáy kính, hoàng hôn, ban đêm.
+| 📺 Chữ trên màn hình | 🎙️ Phượng voice off | 🎬 Hình ảnh |
+|---|---|---|
+| 🤲 **XÚC GIÁC** | *Hồ bơi điện phân muối khoáng, nước ấm, dịu nhẹ cho da.* | Cận làn nước, tay lướt trên mặt nước |
+| 👀 **THỊ GIÁC** | *Tầm nhìn không giới hạn với hồ bơi đáy kính pha lê, ngắm trọn Sài Gòn khi lên đèn.* | Toàn cảnh hồ bơi về đêm, thành phố lên đèn |
+| 👂 **THÍNH GIÁC** | *Tách khỏi sự ồn ào, với không gian private, đẳng cấp.* | Góc hồ yên tĩnh, ánh đèn dịu |
+| 👃 **KHỨU GIÁC** | *Được relax, với hương thơm từ vườn thảo mộc.* | Vườn thảo mộc tầng thượng, lá cây lay nhẹ |
+| 👅 **VỊ GIÁC** | *Là nơi kết nối và thư giãn cùng gia đình, bên vườn trà trên không và tiệc BBQ trên tầng thượng.* | Gia đình quây quần bàn trà, tiệc BBQ về đêm |
 
 ## 2. Vì hiểu đây là nhà của bạn
 
