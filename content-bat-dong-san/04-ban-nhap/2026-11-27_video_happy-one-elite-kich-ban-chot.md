@@ -37,7 +37,7 @@
 | 📺 Chữ trên màn hình | 🎙️ Phượng nói | 🎬 Hình ảnh |
 |---|---|---|
 | — | *Bước vào nhà, mọi thứ đã khác.* | Phượng đứng trước cửa căn hộ |
-| **KHÓA FACEID 9 CHỨC NĂNG** | *Khóa cửa thông minh FaceID 9 chức năng, nhận diện định danh khuôn mặt của bạn.* | Cận khóa quét khuôn mặt, cửa mở |
+| **KHÓA FACEID 9 CHỨC NĂNG** | *Khóa FaceID 9 chức năng, chỉ mở cho gia chủ.* | Cận khóa quét khuôn mặt, cửa mở |
 | **GẠCH 60x120** | *Sàn gạch khổ lớn 60x120 liền mạch, không gian sang trọng.* | Máy quay lướt thấp trên sàn |
 | **BAN CÔNG KÍNH CONG** | *Hệ cửa nhôm kính rộng cùng ban công kính cong, đón trọn ánh sáng, mở ra tầm nhìn tuyệt đối.* | Phượng kéo cửa kính, bước ra ban công |
 | **BẾP MALLOCA CHUẨN ÂU** | *Bếp Malloca chuẩn Âu với tủ bếp full trần.* | Lướt dọc tủ bếp, cận bếp từ |
