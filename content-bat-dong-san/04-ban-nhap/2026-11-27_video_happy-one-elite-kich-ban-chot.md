@@ -62,7 +62,12 @@
 
 ## 4. Vì hiểu nỗi lo tài chính của bạn
 
-*Vì hiểu bạn ái ngại lãi suất, áp lực dòng tiền và mơ ước được sớm an cư lạc nghiệp, nên chủ đầu tư đã đưa ra tiến độ thanh toán vô cùng linh hoạt. Thanh toán giãn đến 2029 mới nhận nhà. Có khoảng thời gian chỉ cần thanh toán **6 triệu mỗi tháng**. Nếu tài chính mạnh, bạn có thể chọn thanh toán nhanh với chiết khấu… **lên đến 17%**.*
+📺 **Chữ:** **VÌ HIỂU NỖI LO TÀI CHÍNH**
+
+🎙️ **Phượng nói:**
+*Thoát khỏi câu chuyện lãi suất cao, bỏ qua áp lực dòng tiền, và chạm đến ước mơ sớm an cư lạc nghiệp. Với lịch thanh toán giãn đến 2029 mới nhận nhà, có khoảng thời gian chỉ cần thanh toán **6 triệu một tháng**. Nếu tài chính mạnh, thanh toán nhanh, chiết khấu… **lên đến 17%**.*
+
+📺 **Đồ họa:** "2029" → "6 TRIỆU/THÁNG" → "17%" bật ra cuối cùng.
 
 ## 🎁 OFFER
 
