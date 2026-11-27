@@ -30,14 +30,20 @@
 
 ## 2. Vì hiểu đây là nhà của bạn
 
-*Ngay từ khoảnh khắc bước vào, mọi thứ đã khác.*
-*Khóa cửa thông minh FaceID 9 chức năng, chỉ nhận diện bạn.*
-*Sàn gạch khổ lớn 60x120 liền mạch, sang trọng.*
-*Hệ cửa nhôm kính rộng cùng ban công kính cong, đón trọn ánh sáng và tầm nhìn.*
-*Bếp Malloca chuẩn Âu với tủ bếp full trần.*
-*Phòng tắm với thiết bị vệ sinh thông minh Hafele.*
-*Rèm và smart home, cả căn nhà vận hành chỉ một chạm.*
-*Một căn hộ bàn giao như vậy, bạn phải tận mắt nhìn, tận tay chạm mới cảm hết cái sự sướng này được.*
+📺 **Chữ:** **VÌ HIỂU ĐÂY LÀ NHÀ CỦA BẠN**
+
+🎙️ **Phượng vừa đi vừa nói** (quay trong nhà mẫu nếu có, chưa có thì dùng phối cảnh):
+
+| 📺 Chữ trên màn hình | 🎙️ Phượng nói | 🎬 Hình ảnh |
+|---|---|---|
+| — | *Bước vào nhà, mọi thứ đã khác.* | Phượng đứng trước cửa căn hộ |
+| **KHÓA FACEID 9 CHỨC NĂNG** | *Khóa cửa thông minh FaceID 9 chức năng, nhận diện định danh khuôn mặt của bạn.* | Cận khóa quét khuôn mặt, cửa mở |
+| **GẠCH 60x120** | *Sàn gạch khổ lớn 60x120 liền mạch, không gian sang trọng.* | Máy quay lướt thấp trên sàn |
+| **BAN CÔNG KÍNH CONG** | *Hệ cửa nhôm kính rộng cùng ban công kính cong, đón trọn ánh sáng, mở ra tầm nhìn tuyệt đối.* | Phượng kéo cửa kính, bước ra ban công |
+| **BẾP MALLOCA CHUẨN ÂU** | *Bếp Malloca chuẩn Âu với tủ bếp full trần.* | Lướt dọc tủ bếp, cận bếp từ |
+| **THIẾT BỊ VỆ SINH HAFELE** | *Không gian tắm thư giãn với thiết bị thông minh Hafele.* | Phòng tắm, cận bồn cầu thông minh |
+| **SMART HOME** | *Hệ thống smart home và rèm thông minh cả căn nhà. Hiểu bạn chỉ với một cái chạm.* | Phượng chạm điện thoại / công tắc, rèm tự kéo mở |
+| — | *Một căn hộ bàn giao như vậy, anh chị phải đến tận tay chạm, tận mắt nhìn mới cảm nhận được hết cái sự sướng của nó.* | Phượng quay lại nhìn camera, mỉm cười |
 
 ## 3. Vì hiểu bạn luôn di chuyển
 
