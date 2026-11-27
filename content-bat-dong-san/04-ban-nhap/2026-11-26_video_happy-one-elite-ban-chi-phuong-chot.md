@@ -3,8 +3,9 @@
 > Bản do chị Phượng hoàn thiện (cập nhật lần 2). Lời thoại ~630 âm tiết, ước tính **3 phút 45 – 4 phút 15**.
 
 HOOK (mới, ~5 giây):
-Được thả mình… bay giữa thành phố.
-Đó là hồ bơi đáy kính pha lê, tại Happy One Elite.
+Người ta bơi trong hồ.
+Bạn… được bay giữa thành phố.
+Đó là hồ bơi đáy kính pha lê. Happy One Elite.
 
 Vì hiểu bạn cần thư giãn Vì hiểu người trẻ thích bơi, cần một nơi để thả lỏng sau ngày dài, nên chủ đầu tư đã làm hồ bơi đáy kính pha lê trên tầng thượng vắt ngang giữa hai tòa tháp… chạm tới cả 5 giác quan.
 Xúc giác: ngâm mình trong làn nước ấm, điện phân muối khoáng, dịu nhẹ cho da.
