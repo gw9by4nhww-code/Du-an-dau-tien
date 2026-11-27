@@ -26,7 +26,7 @@
 | 👀 **THỊ GIÁC** | *Tầm nhìn không giới hạn với hồ bơi đáy kính pha lê, ngắm trọn Sài Gòn khi lên đèn.* | Toàn cảnh hồ bơi về đêm, thành phố lên đèn |
 | 👂 **THÍNH GIÁC** | *Tách khỏi sự ồn ào, với không gian private, đẳng cấp.* | Góc hồ yên tĩnh, ánh đèn dịu |
 | 👃 **KHỨU GIÁC** | *Được relax, với hương thơm từ vườn thảo mộc.* | Vườn thảo mộc tầng thượng, lá cây lay nhẹ |
-| 👅 **VỊ GIÁC** | *Là nơi kết nối và thư giãn cùng gia đình, bên vườn trà trên không và tiệc BBQ trên tầng thượng.* | Gia đình quây quần bàn trà, tiệc BBQ về đêm |
+| 👅 **VỊ GIÁC** | *Là nơi kết nối cùng gia đình và bạn bè, tận hưởng trải nghiệm đẳng cấp trên tầng thượng với pool party và tiệc BBQ.* | Bạn bè, gia đình vui pool party bên hồ; tiệc BBQ tầng thượng về đêm |
 
 ## 2. Vì hiểu đây là nhà của bạn
 
