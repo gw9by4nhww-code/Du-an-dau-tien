@@ -43,7 +43,7 @@
 | **BẾP MALLOCA CHUẨN ÂU** | *Bếp Malloca chuẩn Âu với tủ bếp full trần.* | Lướt dọc tủ bếp, cận bếp từ |
 | **THIẾT BỊ VỆ SINH HAFELE** | *Không gian tắm thư giãn với thiết bị thông minh Hafele.* | Phòng tắm, cận bồn cầu thông minh |
 | **SMART HOME** | *Hệ thống smart home và rèm thông minh cả căn nhà. Hiểu bạn chỉ với một cái chạm.* | Phượng chạm điện thoại / công tắc, rèm tự kéo mở |
-| — | *Một căn hộ bàn giao như vậy, anh chị phải đến tận tay chạm, tận mắt nhìn mới cảm nhận được hết cái sự sướng của nó.* | Phượng quay lại nhìn camera, mỉm cười |
+| — | *Các bạn phải đến tận mắt nhìn và tận tay chạm, mới cảm nhận được hết cái sự sướng của một căn hộ được bàn giao như thế này.* | Phượng quay lại nhìn camera, mỉm cười |
 
 ## 3. Vì hiểu bạn luôn di chuyển
 
