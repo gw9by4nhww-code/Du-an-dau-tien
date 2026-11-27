@@ -2,10 +2,10 @@
 
 > Bản do chị Phượng hoàn thiện (cập nhật lần 2). Lời thoại ~630 âm tiết, ước tính **3 phút 45 – 4 phút 15**.
 
-Với người trẻ có 1 sự thật,
-8 tiếng Hướng ngoại với cả thế giới về vẫn mở laptop làm tiếp, nếu có những giờ hướng nội thực chất lượng thì mọi chuyện sẽ được giải quyết.
-Vậy thì nơi mình về mỗi tối không thể chỉ là chỗ để ngủ.
-Happy one elite Nhà là nơi nuôi dưỡng chính mình.
+HOOK (mới, ~5 giây):
+Được thả mình… bay giữa thành phố.
+Đó là hồ bơi đáy kính pha lê, tại Happy One Elite.
+
 Vì hiểu bạn cần thư giãn Vì hiểu người trẻ thích bơi, cần một nơi để thả lỏng sau ngày dài, nên chủ đầu tư đã làm hồ bơi đáy kính pha lê trên tầng thượng vắt ngang giữa hai tòa tháp… chạm tới cả 5 giác quan.
 Xúc giác: ngâm mình trong làn nước ấm, điện phân muối khoáng, dịu nhẹ cho da.
 Thị giác: ngắm trọn Sài Gòn lên đèn, tầm nhìn không giới hạn.
@@ -32,3 +32,11 @@ Happy one elite: pháp lý mạnh giấy phép xây dựng 1/500 vừa nhận gi
 nếu bạn là người trẻ cần không gian chữa lành, thể thao ngay tại nhà, di chuyển thuận lợi và tiến độ thanh toán nhẹ nhàng, thì Happy One Elite là lựa chọn tối ưu nhất.
 tag người bạn đang bị deadline bào mòn vào đây. Trong 8 điều hiểu, điều nào anh chị thấy cần thiết nhất? Chia sẻ cùng Phượng nhé
 Happy One Elite: Live Above, Live Elite. Lam Phượng đây, hẹn gặp lại cả nhà!
+
+
+---
+Hook cũ (lưu lại):
+Với người trẻ có 1 sự thật,
+8 tiếng Hướng ngoại với cả thế giới về vẫn mở laptop làm tiếp, nếu có những giờ hướng nội thực chất lượng thì mọi chuyện sẽ được giải quyết.
+Vậy thì nơi mình về mỗi tối không thể chỉ là chỗ để ngủ.
+Happy one elite Nhà là nơi nuôi dưỡng chính mình.
