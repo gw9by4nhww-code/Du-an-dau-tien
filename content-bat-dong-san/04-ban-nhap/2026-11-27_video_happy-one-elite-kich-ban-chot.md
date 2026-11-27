@@ -15,13 +15,19 @@
 
 ## 1. Vì hiểu bạn cần thư giãn
 
-*Vì hiểu người trẻ thích bơi, cần một nơi để thả lỏng sau ngày dài, nên chủ đầu tư đã làm **hồ bơi đáy kính pha lê** trên tầng thượng, vắt ngang giữa hai tòa tháp… chạm tới cả 5 giác quan.*
+📺 **Chữ trên màn hình:** **VÌ HIỂU BẠN CẦN THƯ GIÃN**
 
-- 🤲 *Xúc giác: ngâm mình trong làn nước ấm, điện phân muối khoáng, dịu nhẹ cho da.*
-- 👀 *Thị giác: ngắm trọn Sài Gòn lên đèn, tầm nhìn không giới hạn.*
-- 👂 *Thính giác: chìm vào không gian yên tĩnh, tách khỏi mọi ồn ào ngoài kia.*
-- 👃 *Khứu giác: hương thơm dịu nhẹ từ vườn thảo mộc ngay bên cạnh.*
-- 👅 *Vị giác: bơi xong làm bữa BBQ trên cao, nhâm nhi trà ở vườn trà trên không cùng gia đình, mời bạn bè đến. Vừa chữa lành, vừa kết nối, vừa là một nét đẳng cấp rất riêng.*
+🎙️ **Phượng vừa đi vừa nói:**
+*Vì hiểu bạn cần một nơi để thả lỏng, nên chủ đầu tư đã làm một **hồ bơi đáy kính pha lê** trên tận tầng thượng, vắt ngang giữa 2 tòa tháp, chạm đến 5 giác quan.*
+
+📺 **Chữ trên màn hình** (hiện lần lượt cùng cảnh hồ bơi, Phượng không đọc):
+- 🤲 Xúc giác: nước ấm, điện phân muối khoáng, dịu nhẹ cho da
+- 👀 Thị giác: ngắm trọn Sài Gòn lên đèn, tầm nhìn không giới hạn
+- 👂 Thính giác: không gian yên tĩnh, tách khỏi ồn ào
+- 👃 Khứu giác: hương thơm từ vườn thảo mộc
+- 👅 Vị giác: BBQ trên cao, trà ở vườn trà trên không
+
+🎬 **Hình ảnh:** Phượng đi dọc thành hồ (hoặc trước sa bàn / màn hình phối cảnh), xen cảnh hồ bơi đáy kính pha lê từ nhiều góc: xuyên đáy kính, hoàng hôn, ban đêm.
 
 ## 2. Vì hiểu đây là nhà của bạn
 
