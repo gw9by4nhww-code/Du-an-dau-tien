@@ -65,9 +65,9 @@
 📺 **Chữ:** **VÌ HIỂU NỖI LO TÀI CHÍNH**
 
 🎙️ **Phượng nói:**
-*Thoát khỏi câu chuyện lãi suất cao, bỏ qua áp lực dòng tiền, và chạm đến ước mơ sớm an cư lạc nghiệp. Với lịch thanh toán giãn đến 2029 mới nhận nhà, có khoảng thời gian chỉ cần thanh toán **6 triệu một tháng**. Nếu tài chính mạnh, thanh toán nhanh, chiết khấu… **lên đến 17%**.*
+*Với lịch thanh toán giãn đến 2029 mới nhận nhà, có khoảng thời gian chỉ cần thanh toán **6 triệu một tháng**. Nếu tài chính mạnh, thanh toán nhanh, chiết khấu… **lên đến 17%**. Bỏ qua câu chuyện lãi suất cao, thoát khỏi áp lực về dòng tiền, chạm thẳng đến ước mơ sớm an cư lạc nghiệp.*
 
-📺 **Đồ họa:** "2029" → "6 TRIỆU/THÁNG" → "17%" bật ra cuối cùng.
+📺 **Đồ họa:** "2029" → "6 TRIỆU/THÁNG" → "17%"; câu cuối hiện chữ **AN CƯ LẠC NGHIỆP**.
 
 ## 🎁 OFFER (vòng lặp)
 
