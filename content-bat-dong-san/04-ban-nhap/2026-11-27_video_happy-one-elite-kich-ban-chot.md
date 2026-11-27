@@ -69,11 +69,16 @@
 
 📺 **Đồ họa:** "2029" → "6 TRIỆU/THÁNG" → "17%" bật ra cuối cùng.
 
-## 🎁 OFFER
+## 🎁 OFFER (vòng lặp)
 
-*Trong 4 điều "vì hiểu bạn", điều nào khiến bạn thích nhất? Chia sẻ cùng Phượng nhé.*
-*Và đừng quên tag ngay người bạn đang bị deadline bào mòn, cùng về làm hàng xóm sớm nhé!*
+*Trong 4 điều "vì hiểu bạn", điều gì khiến bạn thích nhất? Comment cho Phượng biết nhé.*
 ***Happy One Elite – Live Above, Live Elite.***
+*Bởi vì…*
+
+🔁 **Kỹ thuật video vòng lặp:** cắt video ngay sau chữ *"Bởi vì…"*, không có màn hình kết. Video tự phát lại từ hook, nên người xem nghe liền thành một câu:
+> *"…Bởi vì… người ta bơi trong hồ, bạn được bay giữa thành phố."*
+
+Lưu ý dựng: nhạc và hình ở giây cuối phải nối mượt với giây đầu (cùng cảnh hồ bơi, cùng tông nhạc), để người xem không nhận ra chỗ nối và xem thêm vòng nữa.
 
 ---
 
